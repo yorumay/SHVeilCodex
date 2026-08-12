@@ -1,0 +1,1 @@
+A colossal, dragon-sized centipede dwelling deep within dark mountain caves, mist-shrouded valleys, and underground ruins. possessing armor-like chitin scales, razor-sharp fangs dripping with deadly neurotoxins, and a terrifying speed, the omukade is famous in legend for hunting whole cattle herds, raiding mountain villages, and even overpowering foolish dragons.

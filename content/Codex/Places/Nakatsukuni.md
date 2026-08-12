@@ -1,0 +1,3 @@
+> _Middle Realm_
+
+The physical world inhabited by mortals, sprawling cities, and wild wilderness. Positioned directly between the blinding brilliance of the heavenly High Plain (Takamagahara) above and the cold, shadowy underworld (Yomi-no-Kuni) below, the Middle Realm is a fragile nexus of physical law and spiritual power. It is the earthly stage where kami, yokai, and mortals coexist, and where cosmic entities from The Void attempt to bleed into physical reality.

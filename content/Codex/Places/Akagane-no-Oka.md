@@ -1,0 +1,1 @@
+A vast, rugged mountain range renowned for its limitless mineral wealth, supplying the realm with iron, copper, and building sotne. The peaks derive their name - and distinctive rust-red hue - from the massive, exposed veins of iron and copper running along their cliffs. Deep within the roots of the range lies a sprawling, subterranean labyrinth of ancient, worked stone ruins. 

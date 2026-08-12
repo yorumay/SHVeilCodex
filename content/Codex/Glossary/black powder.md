@@ -1,0 +1,1 @@
+The volatile, fine grey powder composed of saltpeter, sulfur, and charcoal used to propel lead shot from tanegashima rifles and ignite siege bombs (hyokeron). Highly regulated by regional daimyo and the shogunate, access to black powder granaries is a tightly guarded state secret. A single spark near a powder store can instantly level a fortress wall or wipe out a supply line.

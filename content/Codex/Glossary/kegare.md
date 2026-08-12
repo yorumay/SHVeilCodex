@@ -1,0 +1,1 @@
+A state of spiritual pollution, defilement, or disharmony caused by death, disease, bloodshed, or unnatural deeds. Kegare separates mortals from the favor of the kami and must be cleansed through ritual purifications (harae) using salt, clean water, or sacred talismans (ofuda).

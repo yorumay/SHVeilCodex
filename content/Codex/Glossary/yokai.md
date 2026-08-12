@@ -1,0 +1,1 @@
+A broad classification for supernatural creatures, shapeshifting spirits, monsters, and cursed entities that haunt the shadows of the mortal realm. Ranging from mischievous tricksters like tanuki and kitsune to lethal beasts like oni and tengu, yokai often arise from corrupted kami, unfulfilled grudges, or places where the veil between spirits and mortals has grown thin.

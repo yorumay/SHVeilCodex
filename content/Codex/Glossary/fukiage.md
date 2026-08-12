@@ -1,0 +1,1 @@
+A broad, cleared defensive plaza or gravel garden purposefully surrounding a daimyo's keep (tenshu). Built without large trees or wooden structures, a fukiage serves a dual purpose: it acts as a firebreak to stop flaming arrows from spreading to the main keep, and provides an open, coverless kill-zone where archers and matchlock gunners can cut down approaching attackers.

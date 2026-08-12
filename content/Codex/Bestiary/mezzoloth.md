@@ -1,0 +1,1 @@
+Brutish, four-armed insectoid merceneries hailing from the lower planes of Gehenna and Handes. Driven strictly by contract, gold, and cold violence, mezzoloths wield heavy tridents, exhale toxic clouds of death-gas, and can teleport short distances across the battlefield.

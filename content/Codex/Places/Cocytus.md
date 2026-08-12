@@ -1,0 +1,3 @@
+> _The Shrieking Layer / Second Mind of Howls_
+
+The treacherous second layer of Pandemonium, where the plane's ceaseless winds are carved by narrow, hand-hewn stone tunnels into high-pitched, deafening shrieks. Unlike the raw stone caverns of the upper layer, Cocytus is covered in black, unnatural ice and ancient, forgotten inscriptions. The biting cold and acoustic torture of its tunnels are known to shatter willpower and crystallize the thoughts of those who linger too long in its dark passaged ways.

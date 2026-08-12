@@ -1,0 +1,4 @@
+> **Terrain:** mountain border, river valley, twin peninsulas, bay coast
+> **Notable:** Fukama (old Imperial capital), Kaisei and Kiyosaka (port cities), Sakuragawa river, fortresses of Tatsuya, Takishiro and Kosetsu
+
+Shizume carries history the way old timber carries its grain: through every surface, in every direction. Fukama was the first Imperial capital, where the Akimatsu line of emperors came to power, and though the seat of government moved to Dojyu centuries ago, Fukama remaind - and grew into the cultural heart of the nation, its old castle gardens famous for the cherry blossoms that gave the Sakuragawa it's name. The river divides the province east and west as it descends from teh highland forests to Hikariboshi Bay, where the port cities of Kaisei and Kiyosaka handle the commerce that keeps the province vital.

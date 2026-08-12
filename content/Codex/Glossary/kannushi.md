@@ -1,0 +1,1 @@
+the ordained priests who maintain Shinto shrines, oversee sacred grounds, and serve as intermediaries between mortals and the kami. A kannushi performs daily offerings, leads community festivals (matsuri), and conducts cleansing rituals (harae) to banish spiritual impurity (kegare).

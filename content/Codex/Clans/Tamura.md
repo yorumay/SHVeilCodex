@@ -1,0 +1,1 @@
+A minor clan of farmers from Tairayama province. Their farmsteads are located near the town of Majima. 

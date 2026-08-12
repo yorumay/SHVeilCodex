@@ -1,0 +1,1 @@
+An autonomous league or armed uprising formed by allied peasants, low-ranking warriors, or radical religious sects to resist oppressive taxes or invading warlords. The most famous of these - such as the Ikko-ikko (warrior-monk and peasant leagues) - can field massive militia armies, control entire provinces, and challenge major daimyo.

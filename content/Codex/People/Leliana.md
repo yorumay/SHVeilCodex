@@ -1,0 +1,5 @@
+> "When the vulture picks at the kingdom's bones, the raven shall sit on the Shadow Throne."
+
+She was sent through time to hunt a target. She arrived two hundred years before she were supposed to, without memories that would have told her who she was hunting and why. She landed among the Hisakawa and stayed - not because she had nowhere to go, but because she found something there worth staying for. She watched Fuurin grow up. She trained him in methods neither of them named. She built somethign that looked, from the inside, like a life.
+
+The Bluefire changed the accounting. The planar thinning that cracked the sky also woke things that had been sleeping - including the blade she carries, older than most of what she knows about herself, and which has been observing her with patient, unblinking attention since before she could remember owning it. Kurohane - not a simple weapon. It was conviction made of shadow-metal.

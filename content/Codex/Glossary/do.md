@@ -1,0 +1,1 @@
+The primary torso armor protecting the chest, back, and abdomen. Constructed either from hinged iron scales laced with silk or solid riveted plates, the do distributes the heavy weight of the suit across the hips rather than the shoulders. It serves as the primary canvas for the clan emblems (mon) and decorative lacquerwork.

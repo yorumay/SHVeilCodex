@@ -1,0 +1,1 @@
+A respected family of master artisans and clay-workers hailing from the coastal city of Kaisei. Long renowned for crafting exquisite pottery, industrial tiles, and specialized furnace bricks for the local opal and metal foundries, the Takeda were thrust into tragedy during the cover Shogunate invasion, when their guildhalls and workshops were repurposed into battlegrounds.

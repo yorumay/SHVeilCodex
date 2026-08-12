@@ -1,0 +1,1 @@
+Cloth  sleeves reinforced with sewn-in chainmail (kusari) and overlapping metal plates covering the shoulders down to the knuckles. Kote provide crucial protection for the wrists, forearms, and elbows when wielding a two-handed katana or pulling a heavy longbow, preventing opponents from disabling a warrior's weapon-hand.

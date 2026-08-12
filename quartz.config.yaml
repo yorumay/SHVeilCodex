@@ -1,7 +1,7 @@
 # yaml-language-server: $schema=./quartz/plugins/quartz-plugins.schema.json
 configuration:
-  pageTitle: Quartz 5
-  pageTitleSuffix: ""
+  pageTitle: Shattered Veil
+  pageTitleSuffix: " - Shattered Veil"
   enableSPA: true
   enablePopovers: true
   analytics:
@@ -16,31 +16,34 @@ configuration:
     fontOrigin: googleFonts
     cdnCaching: true
     typography:
-      header: Schibsted Grotesk
-      body: Source Sans Pro
+      title: Cormont Garamand
+      header: Cormont Garamand
+      body: EB Garamond
       code: IBM Plex Mono
     colors:
       lightMode:
-        light: "#faf8f8"
-        lightgray: "#e5e5e5"
-        gray: "#b8b8b8"
-        darkgray: "#4e4e4e"
-        dark: "#2b2b2b"
-        secondary: "#284b63"
-        tertiary: "#84a59d"
-        highlight: rgba(143, 159, 169, 0.15)
-        textHighlight: "#fff23688"
+        light: "#f1e6d0"
+        lightgray: "#e6d8bc"
+        gray: "#b29a78"
+        darkgray: "#2b1d12"
+        dark: "#1f150c"
+        secondary: "#8a2a1f"
+        tertiary: "#8a6f3b"
+        highlight: rgba(138, 42, 31, 0.10)
+        textHighlight: "#b29a7888"
       darkMode:
-        light: "#161618"
-        lightgray: "#393639"
-        gray: "#646464"
-        darkgray: "#d4d4d4"
-        dark: "#ebebec"
-        secondary: "#7b97aa"
-        tertiary: "#84a59d"
-        highlight: rgba(143, 159, 169, 0.15)
-        textHighlight: "#b3aa0288"
+        light: "#1a1310"
+        lightgray: "#2b1d12"
+        gray: "#6e5a44"
+        darkgray: "#e6d8bc"
+        dark: "#f1e6d0"
+        secondary: "#b8503f"
+        tertiary: "#c9a35c"
+        highlight: rgba(184, 80, 63, 0.15)
+        textHighlight: "#6e5a4488"
 plugins:
+  - source: github:quartz-community/folder-page
+    enabled: true
   - source: "@quartz-community/created-modified-date"
     enabled: true
     options:
@@ -111,7 +114,7 @@ plugins:
   - source: "@quartz-community/quartz-fonts"
     enabled: true
   - source: "@quartz-themes/core"
-    enabled: true
+    enabled: false
     options:
       theme: its-theme
       variation: ttrpg-dnd
@@ -228,7 +231,7 @@ plugins:
       position: afterBody
       priority: 10
   - source: "@quartz-community/footer"
-    enabled: true
+    enabled: false
     options:
       links:
         GitHub: https://github.com/jackyzha0/quartz
@@ -278,6 +281,14 @@ plugins:
       darkMode: auto
       exportPadding: 20
     order: 50
+  - source: github:quartz-community/folder-page
+    enabled: true
+    options:
+      showFolderCount: true
+      showSubfolders: true
+    order: 50
+  - source: github:quartz-community/folder-page
+    enabled: true
 layout:
   groups:
     toolbar:

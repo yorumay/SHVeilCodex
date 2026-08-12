@@ -1,0 +1,1 @@
+An iron or hardened leather face-mask worn beneath the kabuto to protect the cheeks, chin, and nose from arrows and blade thrusts. Frequently carved into fierce, snarling expressions resembling oni, tengu, or aging warlords - complete with horsehair moustaches and metallic teeth - the menpo serves to terrify enemies and conceal any trace of fear or pain from the wearer's face.

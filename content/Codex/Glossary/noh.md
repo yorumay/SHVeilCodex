@@ -1,0 +1,1 @@
+A solemn, deeply spiritual form of classical Japanese musical drama favored by the imperial court and samurai elite. Performed on sparse wooden stages with slow, graceful movements, minimalist chanting, and iconic carved wooden masks. Noh plays frequently explore themes of tragic deaths, lingering ghosts (yurei), divine intervention by kami, and spiritual redemption.
