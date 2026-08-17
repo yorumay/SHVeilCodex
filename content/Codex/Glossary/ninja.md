@@ -1,1 +1,3 @@
+![[ninja-1786607612762.webp]]
+
 Cover agents, spies, and assassins skilled in the non-traditional warfare deemed dishonorable by high-minded samurai. Utilizing camouflage, stealth, poisons, custom tools, and psychological tricks, ninja serve daimyo as scouts, saboteurs, and gatherers of secret intelligence. Though heavily romanticized - or feared as shadow-magic users - most operate strictly out of sight to ensure their lord's survival behind the scenes.

@@ -1,1 +1,3 @@
-Magical, multi-tailed foxes associated with the deity of agriculture adn prosperity (Inari). Kitsune gain power, wisdom, and additional tails as they age - up to nine tails (kyubi no kitsune). They master illusion magic, fox-fire (kitsunebi), and shapeshifting. While many kitsune act as menevolent messengers of the kami, rogue or wild foxes (nogitsune) enjoy tricking arrogant samurai, seducing foolish courtiers, and leading travelers into haunted swamps.
+![[kitsune-1786608279129.webp]]
+
+Magical, multi-tailed foxes associated with the deity of agriculture and prosperity (Inari). Kitsune gain power, wisdom, and additional tails as they age - up to nine tails (kyubi no kitsune). They master illusion magic, fox-fire (kitsunebi), and shapeshifting. While many kitsune act as menevolent messengers of the kami, rogue or wild foxes (nogitsune) enjoy tricking arrogant samurai, seducing foolish courtiers, and leading travelers into haunted swamps.

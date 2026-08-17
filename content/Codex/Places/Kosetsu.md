@@ -1,3 +1,4 @@
+![[Kosetsu-1786607549007.webp]]
 ## Key Facts
 > Location: Eastern Shizume, on the road from Shogitsu
 > Garrison: Permanent; standard complement

@@ -1,1 +1,3 @@
+![[aboleth-1786609204539.webp]]
+
 Ancient, slime-dripping sea horrors that predated the gods themselves, lurking in subterranean oceans and deep trench abysses. Possessing massive telepathic minds, three slit-like red eyes, and tentacled leviathan bodies, aboleths view mortals as mere cattle and gods as upstart pretenders. Using potent psionic domination and mucilaginous slime that transforms air-breathers into water-dependent thralls, and aboleth operates as a terrifying secret puppet-master beneath coastal fiefdoms.

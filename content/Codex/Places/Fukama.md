@@ -1,3 +1,5 @@
+![[Fukama-1786607511530.webp]]
+
 The historic cultural capital and birthplace of the Akimatsu Empire. Founded over a millennium and a half ago when Emperor mori erected his grand fortress along the banks of the Sakuragawa. Fukama served as the imperial seat for five centuries before the court relocated to Dojyu. Though left to decay for generations, the city underwent a dramatic reneissance, growing into a bustling metropolis of over 120,000 souls renowned for its classic architecture, artisan guilds, and historic landmarks.
 
 Catastrophe struck during the Spellplague when Bluefire poured down from the sky, causing the Sakuragawa to burst its banks and drowning over 80,000 residents in the outer wards. The historic inner city and the Emperor Mori's original keep survived only through a miraculous confluence of forces: the protective warding of an ancient, subterranean earth-node anchored beneath the castle foundations, and the intervention of Shinzatsu, who bound the raging flame-avatar of Kagutsuchi as it descended alongside the blue inferno.

@@ -1,1 +1,2 @@
+![[will-o'-wisp-1786609853099.webp]]
 Malevolent, glowing orbs of phantom fire that float over battlefield, marhes, and execution grounds. Formed from the lingering malice and despair of dying warriors, these undying spirits feed on fear and agony. They mimic torchlight or guiding latnerns to lure lost travelers into deep bogs, quicksand, or lairs of hungry monsters, cackling quietly as their victims drown.
