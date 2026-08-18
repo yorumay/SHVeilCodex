@@ -1,1 +1,3 @@
-![[tanuki-1786609830160.webp|256]]Bumbling, merry shapeshifters who resemble wild raccoon dogs. Famous for their insatiable love of sake, good food, and harmless pranks, tanuki use magical oak leaves placed on their heads to cast illusions - turning stones into gold coins or teakots into gold statues to fool greedy merchants. Though generally friendly and fond of human company, an angered tanuki can use its heavy iron war-fans massive illusionary weights to crush foes.
+![[tanuki-1786609830160.webp]]
+
+Bumbling, merry shapeshifters who resemble wild raccoon dogs. Famous for their insatiable love of sake, good food, and harmless pranks, tanuki use magical oak leaves placed on their heads to cast illusions - turning stones into gold coins or teakots into gold statues to fool greedy merchants. Though generally friendly and fond of human company, an angered tanuki can use its heavy iron war-fans massive illusionary weights to crush foes.

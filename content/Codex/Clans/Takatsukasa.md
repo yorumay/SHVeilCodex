@@ -1,1 +1,3 @@
-![[Takatsukasa-1786610135737.webp|256]]A clan of wealthy but minor nobility hailing from Tairayama province, fanatically devoted to the Hojo Shogunate. Having amassed immense wealth under the Shogun's strict authoritarian order, the family aggressively opposes the Imperial Restoration. In a bid to counter the rising fame of Shinzatsu, the clan's ambitious heir, Takatsukasa Hideo, financed and founded a state-sanctioned rival adventuring guild known as the Golden Falcon.
+![[Takatsukasa-1786610135737.webp]]
+
+A clan of wealthy but minor nobility hailing from Tairayama province, fanatically devoted to the Hojo Shogunate. Having amassed immense wealth under the Shogun's strict authoritarian order, the family aggressively opposes the Imperial Restoration. In a bid to counter the rising fame of Shinzatsu, the clan's ambitious heir, Takatsukasa Hideo, financed and founded a state-sanctioned rival adventuring guild known as the Golden Falcon.

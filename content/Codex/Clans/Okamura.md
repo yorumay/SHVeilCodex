@@ -1,4 +1,6 @@
-![[Okamura-1786610105735.webp|256]]Before there was Guroutsu, there was Renjishi. A samurai of middling rank and excellent reputation, granted a name, a house, and a family by the lord he served. For some time, it was an ordinary life. It ended when a kitsune named Koyuri arrived in his town and began consuming the will of everyone around him.
+![[Okamura-1786610105735.webp]]
+
+Before there was Guroutsu, there was Renjishi. A samurai of middling rank and excellent reputation, granted a name, a house, and a family by the lord he served. For some time, it was an ordinary life. It ended when a kitsune named Koyuri arrived in his town and began consuming the will of everyone around him.
 
 Renjishi saw through the illusion. He went to his lord, who was already compromised. He faced Koyuri alone. Both struck killing blows. In that moment between living and dying, Koyuri offered a contract: his soul in service to her. Desperate, he agreed.
 

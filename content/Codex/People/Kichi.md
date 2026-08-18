@@ -1,1 +1,3 @@
-![[Kichi-1786608351913.webp|256]]A young korobokuru girl whose life was shattered during the goblin and oni attacks on her home. Kichi eventually found a home under the tutelage of Master Hagan in Kinzan. Having blossomed into an exceptional weaponsmith in her own right, Kichi now serves as the official master swordsmith for Shinzatsu at Gintaka-no-ie, maintaining the party's legendary arsenal and forgign custom gear for their divine trials.
+![[Kichi-1786608351913.webp]]
+
+A young korobokuru girl whose life was shattered during the goblin and oni attacks on her home. Kichi eventually found a home under the tutelage of Master Hagan in Kinzan. Having blossomed into an exceptional weaponsmith in her own right, Kichi now serves as the official master swordsmith for Shinzatsu at Gintaka-no-ie, maintaining the party's legendary arsenal and forgign custom gear for their divine trials.

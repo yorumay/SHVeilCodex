@@ -1,1 +1,3 @@
-![[intellect devourer-1786609387067.webp|256]]Horrific, quadrupeds resembling walking human brains encased in clawed feline bodies. Created through dark psionic rituals by subterranean horrors, these stealthy predators stalk in the dark to consume the target's intelligence, hollow out their skull and physically crawl inside to pilot the victim's body like a grotesque meat puppet.
+![[intellect devourer-1786609387067.webp]]
+
+Horrific, quadrupeds resembling walking human brains encased in clawed feline bodies. Created through dark psionic rituals by subterranean horrors, these stealthy predators stalk in the dark to consume the target's intelligence, hollow out their skull and physically crawl inside to pilot the victim's body like a grotesque meat puppet.

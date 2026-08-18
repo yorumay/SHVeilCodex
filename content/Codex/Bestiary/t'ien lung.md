@@ -1,1 +1,3 @@
-![[t'ien lung-1786609704641.webp|256]]The highest order of oriental dragons - noble, golden-scaled serpents who guard the palaces of the gods, carry the chariots of divine deities, and oversee the weather patterns of the world. Possessing immense magical power, blinding breath weapons of light and fire, and unmatched wisdom, a T'ien Lung rarely meddles in mortal political squabbles unless a foolish warlord threatesn to disrupt the divine balance of heaven and earth itself.
+![[t'ien lung-1786609704641.webp]]
+
+The highest order of oriental dragons - noble, golden-scaled serpents who guard the palaces of the gods, carry the chariots of divine deities, and oversee the weather patterns of the world. Possessing immense magical power, blinding breath weapons of light and fire, and unmatched wisdom, a T'ien Lung rarely meddles in mortal political squabbles unless a foolish warlord threatesn to disrupt the divine balance of heaven and earth itself.

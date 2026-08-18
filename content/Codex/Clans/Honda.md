@@ -1,4 +1,6 @@
-![[Honda-1786608093006.webp|256]]The Honda clan served as regents to the Akimatsu emperors for generations - the practical rulers of Kozakura during the long era of child emperors. When the Hojo clan moved against them in 1045 DR, the defeat was total. Honda were stripped of their armies, their titles, and most of their lands. Fukama, their ancestral seat, was left to them, after centuries of slow decline.
+![[Honda-1786608093006.webp]]
+
+The Honda clan served as regents to the Akimatsu emperors for generations - the practical rulers of Kozakura during the long era of child emperors. When the Hojo clan moved against them in 1045 DR, the defeat was total. Honda were stripped of their armies, their titles, and most of their lands. Fukama, their ancestral seat, was left to them, after centuries of slow decline.
 
 Over three centuries, Fukama grew into something no one had anticipated: the cultural heart of the coutnry. Theatre, scholarship, art, and trade poured into the city precisely because it wasn't a seat of military power. And Honda grew with it - patient, methodical, never making a move they couldn't survive losing.
 
