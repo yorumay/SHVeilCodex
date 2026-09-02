@@ -1,0 +1,1 @@
+A transitional class of warlord born when appointed provincial governors (shugo) seized local taxes, built private armies, and turned their official titles into hereditary dynasties. Unlike mere bureaucrats, a shugo-daimyo wields dual power: official legitimacy granted by the imperial court or shogunate, backed by the raw military force of their loyal samurai clan.

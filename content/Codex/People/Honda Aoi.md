@@ -1,0 +1,3 @@
+![[Honda Aoi-1786607284459.webp]]
+
+The nine-year-old Shugo-Daimyo of Shizume Province. The sole surviving child of the late Honda Katsuhiro following the destructive Bluefire, Aoi inherited the clan seat at a tender age amidst creeping civil war. Though currently shielded by the protective council of her grandmother, Lady Yasuko, and guarded by the loyalists of Shinzatsu, Aoi represents both the future of the Honda line and a vital figurehead for the Imperial Restoration.

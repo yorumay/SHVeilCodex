@@ -1,0 +1,3 @@
+![[Hojo Sadamune-1786607876607.webp]]
+
+A senior councilor of the Shogunate and the cold, calculating younger cousin of Shogun Kawabuko. Infamous for his sadistic cruelty and tactical genius, Sadamune covertly invaded and occupied Honda clan's strategic city of Kaisei. His tyrannical rule ended abruptly when Shinzatsu infiltrated his stronghold and assassinated him in his private bathhouse.

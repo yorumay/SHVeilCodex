@@ -1,0 +1,1 @@
+The vast agrarian working-class population of farmers, foresters, and villagers who work the land. Though they occupy the low position in the strict feudal hierarchy, the hyakusho are the economic lifeblood of the realm - producing the rice, timber, and goods that feed the armies of the daimyo.

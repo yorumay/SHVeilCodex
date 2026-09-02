@@ -1,0 +1,3 @@
+![[gnoll-1786609320428.webp]]
+
+Savage, hyena-headed humanoids driven by insatiable hunger and demonic bloodlust. Unlike honorable beast-folk or trickster yokai, gnolls are bloodthirsty reavers who roam desolate borderlands and mountain passes in raiding bands. Born from horrific abyssal corruption, they leave behind burned villages, empty granaries, and gnawed bones, viewed by civilized domains as mindless blights that must be put to the sword without quarter.

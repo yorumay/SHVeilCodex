@@ -1,0 +1,3 @@
+![[Amanozako-1786607847068.webp]]
+
+A furious, primordial goddess of rebellion, rage, and sky-demons. Born from the accumulated cosmic fury spewed forth by the sung gods, Amanozako is depicted as a ferocious, winged deity with a long snout, tearing fangs, and unmatched martial power. She is venerated by renegade tengu, outlaw warriors, and anti-shogunate rebels as the ultimate patron of defiance against established order.

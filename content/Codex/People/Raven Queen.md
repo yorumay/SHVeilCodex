@@ -1,0 +1,3 @@
+![[Raven Queen-1786607092917.webp]]
+
+The mysterious, silent deity who recently seized the throne of Shadowfell and ascended into full godhood. Her mortal origins before her divine elevation remain completely erased from history, and her true motivations are fiercely guarded secrets. Unlike deities of murder or decay, the Raven Queen governs the natural transition of death, fate, and memory. She wages an eternal, merciless war against the undead, liches, and those who seek to defy the natural order of mortality - most notably hunting down the thirteen nagpa who betrayed her in ages past.

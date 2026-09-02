@@ -1,0 +1,1 @@
+The social and political climate defining the Sengoku era, where power is claimed through raw strength rather than divine right, court rank, or birthright. Under gekokujo, ambitious vassals assassinate weak lords, peasants revolt against cruel tax collectors, and illegitimate warlords seize entire provinces.

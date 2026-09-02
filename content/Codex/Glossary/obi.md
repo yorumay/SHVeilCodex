@@ -1,0 +1,1 @@
+The wide, woven fabric sash tied around the waist of a kimono or over light armor. Far more than a decorative belt, the obi serves as the functional anchor for a samurai's twin blades (daisho). The precise angle and tightness with which the scabbards are tucked into the obi allows a trained warrior to execute lightning-fast drawing strikes (iaijutsu) directly from the hip. 

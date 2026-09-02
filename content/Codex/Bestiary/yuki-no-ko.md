@@ -1,0 +1,3 @@
+![[yuki-no-ko-1786608468849.webp]]
+
+Playful yet dangerous lesser spirits born from the union of a yuki-onna and a mortal, or manifested from frozen drifts where children perished in winter storms. Appearing as small pale children wrapped in frost-dusted robes, yuki-no-ko travel in silent packs during blizzards. While less outright malicious than their mothering spirits, their touch causes severe frostbite, and their laughter sounds like crackling ice - luring lost travelers deeper into freezing drifts under the guise of lost children needing help.

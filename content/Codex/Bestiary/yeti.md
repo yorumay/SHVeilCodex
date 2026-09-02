@@ -1,0 +1,3 @@
+![[yeti-1786609865758.webp]]
+
+Massive, white-furred apex predators haunting the highest, most inaccessible peaks of the realm. Known to hill tribes as mountain demons, yeti possess terrifying strength, camouflage effortlessly in ice fields, and emit an icy gaze that paralyzes prey with pure terror. Unlike superstitious beast-yokai, yeti are relentless, primitive hunters that view any warm-blooded traveler invading their high passes as meat.

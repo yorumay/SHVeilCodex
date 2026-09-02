@@ -1,0 +1,5 @@
+## Key Facts
+> **Terrain:** Gosuki mountains, conifer forest, Kanfu Teeth mountains
+> **Notable:** Yoshida (human city), Tanegawa (largest korobokuru settlement) Daidake volcano (most volcanically active in Kozakura), islands of Taibojima, Eburishima and Aikonjima
+
+Tenmei is part of Kozakura in law and contested in fact. The great island stretches over four hundred miles from tip to tip, shaped like a long splinted of stone and forest. The Gosuki range rises in the north; the Kanfu teet mountains press up from the south around the violently active Daidake vocano; and between them lies a belt of deep conifer forests whose reaches are known to few humans. The human city of Yoshida occupies a fjord carved deep into the Kanfu mountains, while Tanegawa - the largest korobokuru settlement - lines the forested eastern shore. The korobokuru have held these mountains for over a millennia, and the human claim on the island remains, for practical purposes, a claim no paper.

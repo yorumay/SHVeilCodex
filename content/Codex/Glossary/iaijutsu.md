@@ -1,0 +1,3 @@
+![[iaijutsu-1786610541876.webp]]
+
+The lethal martial art of drawing a single-edged sword (katana or wakizashi) from its scabbard, striking down an opponent, clearing the blood from the blade (chiburi), and re-sheathing it (noto) in one continuous, fluid motion. Born from the constant threat of ambush in close quarters, courtrooms, or narrow hallways, iaijutsu emphasizes speed, positioning, and psychological focus. In duels, a single iaijutsu strike often decides life or death before either combatant can take a second breath.

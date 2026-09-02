@@ -1,0 +1,1 @@
+The standard vernacular dwellings of commoners, farmers, artisans, and low-ranking merchants. Built using wood, clay, thatch, and bamboo, minka vary from a simple village farmhouses to crowded town residences.

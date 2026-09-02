@@ -1,0 +1,1 @@
+The intricate silk, leather, or cotton cords used to weave together the individual iron plates (kozane) of samurai armor. The color, pattern, and quality of the odoshi communicate a warrior's clan affiliation, court rank, and personal taste. Crimson or gold lacing denotes elite standing, while worn or mismatched odoshi marks a mercenary or struggling ronin.

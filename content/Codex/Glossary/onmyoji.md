@@ -1,0 +1,3 @@
+![[onmyoji-1786611267688.webp]]
+
+Esoteric practitioners of Onmyodo - a magical science blending astrology, five-element alchemy, divination, and spirit binding. Formerly high-ranking court officials who calculated calendars and interpreted omens for the Emperor, onmyoji are formidable spellcasters. They command paper spirit-servants (shikigami), trace protective geometric seals (ketsukai), manipulate elemental forces, and banish curses, making them indispensable advisors - or dangerous foes.

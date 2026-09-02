@@ -1,0 +1,1 @@
+The centralized military government headed by the shogun. The term originally referred to general's field headquarters on campaign, but evolved to describe the entire administrative apparatus that rules the realm in place of the civil imperial court. A bakufu enforces its reign through military laws, provincial governors, and direct control of trade and major fiefs.

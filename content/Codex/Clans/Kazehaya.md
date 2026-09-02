@@ -1,0 +1,3 @@
+![[Kazehaya-1786610042173.webp]]
+
+A secretive, highly lethal ninja clan whose origins and true base of operations remain shrouded in dark rumor. Unlike common mercenary guilds, the Kazehaya strike with unnatural precision, specializign in high-stakes political espionage and retrieval of legendary relics. They earned the eternal enmity of the high heavens when they stole the Fan of Fujin - the sacred tengu artifact representing their divine mandate to rule the skies.

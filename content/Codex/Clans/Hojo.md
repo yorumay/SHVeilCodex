@@ -1,0 +1,3 @@
+![[Hojo-1786608197105.webp]]
+
+The dominant political dynasty currently ruling Kozakura with an iron fist. Centuries ago, the Hojo overthrew the long-standing line of imperial regents. Seizing supreme military power, they established the Shogunate and moved the realm's administrative seat to the new capital of Gifu. To maintain their vice grip over rival daimyo, the Hojo rely heavily on shadow networks, state espionage, and contract ninja clans to silently eliminate opposition.

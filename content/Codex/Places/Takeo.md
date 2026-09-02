@@ -1,0 +1,3 @@
+![[Takeo-1787032208719.webp]]
+
+A quiet, secluded mountain village designated by custom as an honorable retirement home for venerable samurai who have survived a lifetime of war. Functioning as a peaceful place to die, the estate in Takeo is traditionally granted to aging warriors for their final years, returning to the province upon their passing to be bestowed upon the next worthy veteran. The village is notable for its deep devotion to **Anrakuson** - the deity of peaceful death and spiritual ease - and for its serene, lingering atmosphere of forgotten history. Following the death of its former administrator two decades ago, Takeo has been largely overlooked by regional lords, leaving it a tranquil pocket outside the realm's growing turmoil.

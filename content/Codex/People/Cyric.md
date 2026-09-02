@@ -1,0 +1,3 @@
+![[Cyric-1786607046442.webp]]
+
+The treacherous, wildly unpredictable god of murder, deceit, madness, and illusion. Having usurped the portfolios of death and strife through betrayal and murder, Cyric seeks nothing less than total chaos, paranoia, and the destruction of all other divine thrones. His hidden cults operate in shadows - fanning the flames of war, inciting betrayal within, and driving ambitious lords into paranoid madness.

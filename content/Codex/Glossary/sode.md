@@ -1,0 +1,1 @@
+Large, rectangular shoulder guards composed of overlapping lacquered iron plates linked with silk cords. Hanging loosely from the shoulders down to the elbows, sode act like flexible, hanging shields - deflecting incoming arrows during horseback archery charges and absorbing downward sword slashes without restricting arm movement.

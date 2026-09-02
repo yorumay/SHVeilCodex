@@ -1,0 +1,3 @@
+![[Toro-Dai Temple-1786609012308.webp]]
+
+The oldest and most historically significant temple of the Way of Enlightenment in all of Kozakura, located within the ancient capital of Fukama. Founded at the dawn of the empire, Toro-dai served as the cradle for Buddhist philosophy in the realm, blending foreign teachings with local kami worship. Featuring massive wooden pagodas and ancient bell towers, the temple remains a sanctuary for spiritual scholars, monks, and high-minded diplomats seeking refuge from political turmoil.

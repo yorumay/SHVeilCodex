@@ -1,0 +1,2 @@
+![[kensai-1786610830792.webp]]
+A legendary warrior who has elevated swordplay beyond a mere martial skill into a spiritual philosophy and art form. Kensai are rare, highly disciplined duelists who spend lifetimes perfecting a single weapon style or establishing independent fighting academies. Operating as revered martial arts masters, lethal champions, or wandering seekers of perfection, their renown on the battlefield is such that mere presence can turn the tide of a clash.

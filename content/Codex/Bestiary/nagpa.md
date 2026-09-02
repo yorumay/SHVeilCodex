@@ -1,0 +1,3 @@
+![[nagpa-1786607580855.webp]]
+
+Ghoulish, vulture-headed humanoids who were once high-archmages of an ancient empire. Cursed by the Raven Queen for catastrophic act of cosmic betrayal, the nagpa were stripped of their beauty and condemned to live forever as wretched, bird-like abominations. Incapable of crafting new magic or ideas, they plot in secret, engineering the downfall of entire kingdoms so they can sift through the ruins for forgotten artifacts and ancient lore.

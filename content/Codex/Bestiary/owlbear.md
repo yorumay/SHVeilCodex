@@ -1,0 +1,3 @@
+![[owlbear-1786609479659.webp]]
+
+A terrifying monstrosity blending the ferocious size and razor claws of a giant bear with the tufted ears, hooked beak, and nocturnal hunting senses of an owl. Known to the northern wilderness hunters as violent, short-tempered predators, owlbears attack on sight, shrieking with screeching roars that echo through mountain valleys. Warlords occasionally attempt to capture their young to train as terrifying castle guard beasts, with mixed success.

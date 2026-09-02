@@ -1,0 +1,1 @@
+The supreme chieftain or recognized head of a major noble or samurai clan (uji). The uji no choja holds absolute authority over family affairs, arranges political marriages, manages ancestral estates, and commands the loyalty of all cadet branches and vassal houses bearing the clan name.

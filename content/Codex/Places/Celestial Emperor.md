@@ -1,0 +1,3 @@
+Also known as the **Master of Heaven** and the **Celestial One**
+
+The supreme, absolute deity who sits atop the Jade Throne, ruling over the [[Celestial Empire]] and governing the vast Celestial Bureaucracy. Scholars, planar sages, and high priests speculate that the Celestial Emperor may function as an Overgod within his cosmic domain, possessing absolute authority over the gods, dragons, and mortal spirits under his charge. From his divine seat in the heavens, he maintains the cosmic balance, commanding his [[Nine Immortals]] to uphold the natural order of the world.

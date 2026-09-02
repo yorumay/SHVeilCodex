@@ -1,0 +1,2 @@
+![[goblin-1786609344812.webp]]
+Small, foul-tempered, and oppoturnistic subterranean humanoid that infest dark mountain caves, ruined castles, and forgotten mine shafts across the realm. In Kozakura, goblins are often viewed as the lowest rank of chaotic yokai or feral vermin. Cowardly when alone, they gather in overwhelming swarms under the command of cruel oni or hobgoblin warlords, utilizing filthy ambush tactics, poisoned darts, and crude scrap-iron weapons.
