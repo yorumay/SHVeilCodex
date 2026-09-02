@@ -1,3 +1,0 @@
-> _Barrens of Doom and Despair_
-
-A bleak, unforgiving plane of dark, jagged stone, perpetual war, and tyrannical rule. Dominated by imposing iron fortresses and scorched battlegroudns, Banehold is a realm where raw strength, cruel discipline, and absolute subjucation dictate survival. It is a divine warzone where ruthless deities and fiendish warlords gather vast legions to scheme against rival cosmic domains.

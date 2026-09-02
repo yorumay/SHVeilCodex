@@ -1,1 +1,0 @@
-The spiritual head of state and divine sovereign of the realm. Revered as a living deity descended from the gods, the tenno holds supreme sacred authority, though temporal military control is usually wielded by the shogun. Even when stripped of actual armies, an imperial blessing or decree from the tenno can instantly legitimize a warlord's rule or declare an enemy an outlaw.

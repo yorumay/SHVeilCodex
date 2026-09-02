@@ -1,3 +1,0 @@
-![[hai nu-1786609365240.webp]]
-
-The aquatic humanoids who inhabit the warm ocean depths, coral reefs, and sunken cities off the coast of Kara-Tur. Possessing fish-like tails and human torsos, hai nu command water magic, speak with sea beasts, and guard the underwater approaches to the Dragon King's palace (Ryugu-jo). Coastal villagers trade pearls and rare sea-herbs with them, where sailors offer them iron gifts to ensure safe passage through storm-racked reefs.

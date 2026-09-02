@@ -1,3 +1,0 @@
-![[amatsukami-1786610221491.webp]]
-
-The celestial kami originating from Takamagahara (the High Heavenly Plain). Led by the Sun Goddess Amaterasu, the amatsukami represent order, divine authority, light, and the celestial hierarchy. Imperial bloodlines and high noble houses trace their divine right to rule back to these heavenly spirits, who established dominion over the mortal realm in primordial times.

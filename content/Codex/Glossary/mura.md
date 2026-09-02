@@ -1,1 +1,0 @@
-A rural agricultural or fishing village operating as a self-contained community. Managed by a vilalge headman (nanushi) under the eye of local land stewards (jito), a mura is collectively responsible for meeting its annual rice tax quote.

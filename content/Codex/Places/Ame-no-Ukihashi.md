@@ -1,3 +1,0 @@
-> _Floating Bridge of Heaven_
-
-The legendary, sacred bridge of pure celestial light said to connect the mortal plane directly to Takamagahara, the High Heavenly Plain. Ancient myth tells that the creator deity Izanagi stood upon this very bridge when dipping his jeweled spear into the ocean to churn the islands of the world into existence. While most scholars treat the bridge as a metaphor for divine authority, localized rumors and sacred texts place its physical anchor atop the majestetic, snow-capped peak of Ichiyama - the supreme mountain of the realm - where celestial gates are said to manifest during rare cosmic alignments.

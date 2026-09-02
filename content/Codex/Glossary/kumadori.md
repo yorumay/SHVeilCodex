@@ -1,2 +1,0 @@
-![[kumadori-1786611015394.webp]]
-The striking, highly stylized face makeup used in kabuki theatre to instantly communicate a character's role, emotional state, and spiritual nature to the audience. Bold red lines (beniguma) denote righteous passion, heroic strength, and divine justice; dark blue or black lines signify malice, demonic blood, or cold villainy; and purple lines represent aristocratic nobility or magical power.

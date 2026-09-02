@@ -1,1 +1,0 @@
-A rare, powerful point where natural leylines and ambient magical currents intersect deep within the earth. In Kozakura, these nodes are revered as spiritual focal points where the Weave runs exceptionally thick. Usually bounded by ancient shrines or runic stone circles.

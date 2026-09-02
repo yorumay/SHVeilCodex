@@ -1,3 +1,0 @@
-![[Fujin-1786607194243.webp]]
-
-The ancient, tempestous kami of wind, air, and storms. Depicted as dark-skinned, wild-haired demon-god carrying a massive leather bag of wind slung over his shoulders, Fujin controls the breezes that cool the rice fields as well as the devastating typhoons that crush invading fleets. Sailors, mountain travelers, and coastal warlords offer generous prayers and rice-wine to Fujin to appease his chaotic temper before taking to the sea.

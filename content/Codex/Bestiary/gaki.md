@@ -1,3 +1,0 @@
-![[gaki-1786607715834.webp]]
-
-Tragic undead spirits bound to the mortal plane by sin of extreme greed, gluttony, or jealousy in life. Cursed to suffer eternal, insatiable hunger and thirst, gaki appear as emaciated humanoids with distended bellies, pinhole throats, and sunken eyes. They haunt desolate battlefields, graveyard roads, and ruined villages, driven mad by a desire to consume things tha tburn their throats - such as ash, corpses, blood, or raw sewage.

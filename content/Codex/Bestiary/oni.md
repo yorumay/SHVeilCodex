@@ -1,3 +1,0 @@
-![[oni-1786609462695.webp]]
-
-Lethal supernatural fiends towering over mortals, depicted with red or blue skin, wild hair, bull-like horns, and clad in tiger-skin loincloths. Armed with massive spiked iron clubs (kanabo), oni embody raw violence, cruelty, and unbridled destruction. Born from the souls of wicked mortals or summoned from the nether realms, they often serve as elite brute forces in armies of dark sorcerers or command lesser hordes of yokai.

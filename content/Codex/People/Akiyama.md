@@ -1,3 +1,0 @@
-![[Akiyama-1786606788117.webp]]
-
-An ancient, reclusive human druid who has spent centuries guarding the mortal realm from planar corruption. Akiyama famously rescued a young Saejima Ken from the brutal sulfur mines, where Ken's family was imprisoned for harboring non-human refugees and escaped slaves. Taking the youth under his wing, Akiyama taught Ken the secrets of druidcraft, wilderness survival, and the dark nature of Yomi. For over two decades, master and pupil traversed the length of Kozakura together, binding planar tears and sealing the creeping fissures connecting the Material Plane to the underworld.

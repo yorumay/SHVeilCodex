@@ -1,1 +1,0 @@
-An ancient race of intelligent shapeshifters who bridge the gap between animals, mortals, and spirits. A hengeyokai can freely alternate between three forms: a natural animal, a fully human disguise, and a bidedal hybrid form. Subraces include cat (neko), dog (inu), badger (mujina), fox (kitsune), and raccoon dog (tanuki).

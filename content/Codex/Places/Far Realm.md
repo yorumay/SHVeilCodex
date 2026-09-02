@@ -1,3 +1,0 @@
-> _The Void / Mugen_ 
-
-A terrifying, incomprehensible realm existing entirely outside the known structure of the Great Wheel and the Middle Realm. Known in Kozakuran lore simply as The Void, it is a dimension of alien geometries, eldritch madness, and cosmic corruption where the laws of nature, time, and sanity cease to apply. Entities from The Void constantly seek fissures into reality to bleed into mortal plane, warping flesh, twisting magic, and unraveling the very fabric of existence.

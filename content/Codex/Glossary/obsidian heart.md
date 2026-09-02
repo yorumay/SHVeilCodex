@@ -1,3 +1,0 @@
-![[Obsidian Heart-1786608802095.webp]]
-
-The glowing core harvested from a primordial elemental of pure fire. Composed of jet-black volcanic glass webbed with pulsating, blood-red veins of magma, an obsidian heart radiates intense, agonizing heat even decades after being severed from its owner's chest. Beyond its raw thermal power, the heart acts as a potent planar anchor: when used in conjuction with the proper esoteric rites, it can forcefully pull the fire elemental back out of the inner planes and bind it to the material realm once more.

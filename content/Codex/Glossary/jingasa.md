@@ -1,2 +1,0 @@
-![[jingasa-1786610663599.webp]]
-A broad, shallow conical helmet crafted from hammered iron, hardened leather, or lacquered wood. Worn primarily by ashigaru infantry and archers, the jingasa deflects downward sword slashes and rain while shielding the eyes from the sun. In camp, its sturdy, dish-like shape leads soldiers to flip it over to boil water or cook rice rations over the hearth.

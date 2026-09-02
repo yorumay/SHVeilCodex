@@ -1,3 +1,0 @@
-> _House of the Silver Hawk_
-
-A grand, heavily fortified estate gifted to Shinzatsu by the late Shugo-Daimyo Honda Katsuhiro in recognition of their heroic deeds. Purpose-built to serve as the operational headquarters for the prophesied guild, Gintaka-no-ie combines the formidable defenses, stone foundations, and architectural elegance of an elite samurai manor with the specialized amenities for adventuring - including training grounds, alchemy hearths, and private chambers for its divine-slaying champions.

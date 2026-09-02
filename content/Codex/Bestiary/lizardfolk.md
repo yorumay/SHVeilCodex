@@ -1,3 +1,0 @@
-![[lizardfolk-1786609409086.webp]]
-
-Semi-aquatic reptilian humanoids who inhabit misty coastal swamps, river deltas, and mangroves of Kara-Tur. Coldly pragmatic and driven purely by survival, lizardfolk view the complex codes of honor and political drama of samurai society as absurd human distractions. While mostly keeping to their isolated territorial villages, their expert tracking and amphibious stealth make them fierce scouts or mercenary allies along riverlands.

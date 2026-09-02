@@ -1,3 +1,0 @@
-![[ashigaru-1786610241829.webp]]
-
-The conscripted or mercenary foot-soldiers who form the vast bulk of feudal armies. Originally recruited from common farmers (hyakusho), ashigaru are equipped with mass-produced lacquered chest armor (okoshigusoku), wide conical iron helmets (jingasa), and long spears (yari) or matchlock rifles (tanegashima). Controlled by stern samurai commanders, a disciplined wall of ashigaru can turn the tide of massed battles through weight of numbers.

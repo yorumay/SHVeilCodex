@@ -1,3 +1,0 @@
-![[tengu-1786606946259.webp]]
-
-Proud, avian yokai dwelling in high mountain forests. They appear either as humanoid brds with raven wings (karasu-tengu) or as tall, red-faced figures with unnaturally long noses (daitengu). Renowned as peerless master swordsmen, strategy experts, and protectors of mountain wilderness, tengu despire arrogant samurai and corrupt monks. However, a worthy warrior who shows true humility may win a tengu as a stern martial master.

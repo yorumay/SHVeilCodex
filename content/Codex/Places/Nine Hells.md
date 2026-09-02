@@ -1,3 +1,0 @@
-> Jigoku
-
-A rigidly structured, nine-tiered plane of absolute law, tyranny, and calculated evil. Governed by a strict hierarchy of archdevils and infernal legates, the Nine Hells operates on ruthless contracts, Faustian bargains, and eternal torment. Unlike the chaotic destruction of wild demons, the fiends of Jigoku utilize order, corruption, and dark bureaucracy to harvest mortal souls and expand their cosmic empire.

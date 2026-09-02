@@ -1,2 +1,0 @@
-![[irori-1786610640239.webp]]
-A traditional square, stone-lined pit cut into the floor of a commoner's house or rural inn, used for heating, cooking, and light. Featuring an adjustable ceiling hook (jizai kagi) to suspend iron cettles, the irorir is the warm, communal heart of an rural village home where travelers gather to dry off, share local rumors, and listen to elders tell ghost stories about the mountains.

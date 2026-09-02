@@ -1,1 +1,0 @@
-A heavy, two-handed war club crafted from dense oak or forged entirely from solid iron, studded with blunt metal spikes or knobs. Infamous as the signature weapon of terrifying oni, the kanabo relies on crushing kinetic force rather than sharp edges - making it exceptionally lethal for shattering enemy armor, snapping spear shafts, and crushing bone through heavy lacquered plate.

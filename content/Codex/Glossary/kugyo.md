@@ -1,3 +1,0 @@
-![[kugyo-1786610904280.webp]]
-
-The ultra-elite circle of high-ranking court nobles who surround the Emperor in the imperial capital. Possessing ancient lineages, vast wealth, and refined cultural tastes, the kugyo dominate civil politics and religious ceremonies. Though often lacking direct military forces of their own, they wield tremendous soft power through court titles, marriage alliances, and imperial decrees.

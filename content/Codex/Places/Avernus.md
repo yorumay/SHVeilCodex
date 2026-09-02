@@ -1,3 +1,0 @@
-> _The Fiery Gate / First Layer of Nine Hells_
-
-The scorcing, blood-soaked first layer of the Nine Hells. A desolate wateland of ruined war-machines, rivers of liquid fire, and ash-choked skies, Avernus serves as the primary frontline in the eternal cosmic war between devils and chaotic demon hordes. It is a brutal entry point into the infernal planes where soul-coins are traded, infernal armies march, and careless travelers are swiftly pressed into eternal servitude.

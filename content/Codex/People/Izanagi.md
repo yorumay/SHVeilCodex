@@ -1,3 +1,0 @@
-![[Izanagi-1786607315680.webp]]
-
-The primordial creator deity who alongside his divine consort Izanami, dipped a jeweled spear into the cosmic ocean to churn the islands of the world into existence. As the father of the sun, moon, and storm deities, Izanagi represents creation, order, and divine sovereignty. His ancient purification rituals after fleeing the Underworld serves as the mythic origin for all Shinto cleansing rituals (harae).

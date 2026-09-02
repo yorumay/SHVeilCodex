@@ -1,3 +1,0 @@
-![[ryu-1786609563861.webp]]
-
-Unlike the winged, destructive dragons of the Western Realms, the dragons of Kara-Tur (Ryu) are majestic, wingless serpentine deities deeply tied to weather, water, wisdom, and divine authority. Flying through pure spiritual force, these noble creatures possess stag horns, catfish whispers, and pearl scales. They serve as guardians of sacred rivers, rulers of sea palaces, and divine ministers of heaven - demanding deep respect, offerings, and refined etiquette from any mortal who approaches them.

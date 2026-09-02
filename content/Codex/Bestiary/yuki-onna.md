@@ -1,3 +1,0 @@
-![[yuki-onna-1786608453434.webp]]
-
-Lethal, ghostly spirits of the frozen wastes who manifest as unnaturally beautiful women with pale, ice-cold skin and trailing white kimono. Appearing during heavy blizzards or mountain storms, yuki-onna freeze unsuspecting travelers solid with their icy breath (yuki-chichu) or lure lost wanderers off cliff edges with phantom cries. Though cruel, some stories speak of them sparing mortals who display true artistic grace or unconditional love.

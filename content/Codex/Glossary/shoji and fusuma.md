@@ -1,1 +1,0 @@
-Lattice wooden frames used as interior partitions and exterior walls. Shoji use translucent rice paper to let in soft, diffused light, while Fusuma are heavy, opaque sliding panels often decorated with opulent brush paintings.

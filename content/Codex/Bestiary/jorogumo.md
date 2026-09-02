@@ -1,3 +1,0 @@
-![[jorogumo-1786608436936.webp]]
-
-A predatory, shape-shifting monster that manifests as a mesmerizingly beautiful woman to lure unsuspecting warriors, travelers, or poets into secluded estates or misty river valleys. Once her victim is isolated, she reveals her true form - a monstrous spider with a human torso - and uses razor sharp, steel-strong silk webbing to immobilize her prey before injecting lethal venom.

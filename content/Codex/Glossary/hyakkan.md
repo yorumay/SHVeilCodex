@@ -1,1 +1,0 @@
-A collective term for the multitude of administrative titles, ministerial offices, and civil posts within the central government. Holding a hyakkan title means a courtier or official possesses recognized bureaucratic authority - weather managing state granaries, overseeing taxation, or running imperial registries.

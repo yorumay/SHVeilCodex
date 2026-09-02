@@ -1,1 +1,0 @@
-The unwritten code of ethics, honor, and martial discipline that governs the conduct of the samurai. Centered on values such as loyalty, duty (giri), courage, integrity, and honor (meiyo), bushido demands that a warrior serve their lord faithfully unto death. 

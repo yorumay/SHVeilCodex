@@ -1,5 +1,0 @@
-> "He seeks the queen in her frozen sleep, while the fox counts the souls she meant to keep."
-
-Before there was Guroutsu, there was Renjishi - a samurai who earned a household by service and held it by vigilance, until a kitsune named Koyuri arrived and began consuming the will of everyone around him. He saw through it. He faced her alone. They killed each other simultaneously, and in the moment between living and dying, she offered him a contract.
-
-What happened next is where the shape of his memory breaks. He came away from that night with a scarred body, a power he doesn't entirely understand, and a grief with no edges - the kind that comes when you don't quite know what you lost, only that you are different from what you were. The name Guroutsu name came after. A ronin's name. A name that moves. And he has been hunting yokai ever since.

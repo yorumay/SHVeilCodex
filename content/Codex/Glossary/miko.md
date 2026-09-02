@@ -1,2 +1,0 @@
-![[miko-1786611169588.webp]]
-Priestesses who serve at shrines, instantly recognizable by their traditional white kimono (haori) and vibrant red split skirts (hakama). Historically acting as spirit mediums, seers, and ritual dancers, miko channel the energy of the kami through sacred dances (kagura), archery, and divination.

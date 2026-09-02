@@ -1,1 +1,0 @@
-Inscribed paper or wooden talismans issued by Shinto shrines and Buddhist temples that carry the consecrated essence or protection of a kami. Adorned with calligraphy, seals, and vermilion ink, ofuda are pasted onto doorways, boundaries, or chests to ward off disease, bad luck, and malignant spirits.

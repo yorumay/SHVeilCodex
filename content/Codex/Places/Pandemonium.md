@@ -1,3 +1,0 @@
-> The Howling Catacombs / Wind-Dungeon
-
-A madness-inducing plane of consisting of an endless, pitch-black subterranean maze of howling stone tunnels. Swept by shrieking, gale-force winds that tear through the dark corridors without respite, Pandemonium slowly erodes the sanity of any mortal or spirit trapped within its depths. The endless, echoing shrieks of the wind drive travelers to paranoia, making it a natural prison for banished horrors and chaotic, unpredictable entitites.

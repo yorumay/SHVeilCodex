@@ -1,3 +1,0 @@
-![[shiro-oni-1786609648634.webp]]
-
-A lesser, highly aggressive breed of oni distinguished by chalk-white skin, matted pale hair, and stunted horns. Adapted to northern mountain passes, frozen caverns, and deep winter pine forests, shiro-oni act as bloodthirsty shock troops and enforcers for greater oni lords. Though less magically gifted than their blue-skinned cousins, their thick hides resist extreme cold and their raw physical strength can shatter a samurai's shield with a single blow.

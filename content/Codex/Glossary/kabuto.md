@@ -1,2 +1,0 @@
-![[kabuto-1786610743553.webp]]
-The iconic, heavily lacquered helmet worn by high-ranking samurai. Built from riveted iron plates with a sweeping neck guard (shikoro), a kabuto is topped with an elaborate front crest (maedate) depcting clan emblems (mon), stylized horns, or terrifying kami imagery. Beyond protecting the head, the helmet identifies the commander amidst the chaos of battle.

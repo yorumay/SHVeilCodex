@@ -1,1 +1,0 @@
-An oval-shaped gold coin used for high-value transactions alongside silver bars and standard copper cash (mon). While commoners measure wealth in copper and armies measure state value in rice yields (koku), koban represents the portable, hard currency favored by wealthy merchants, corrupt officials, black-market smugglers, and high-priced mercenaries.

@@ -1,1 +1,0 @@
-The matched pair of swords - comprising of the long katana and the short wakizashi - worn together thrust through the belt (obi). Carrying the daisho was an exclusive, legal privilege restricted strictly to the samurai class. Beyond their deadly utility on the battlefield, the twin blades represented a warrior's social authority, family lineage, and personal honor.

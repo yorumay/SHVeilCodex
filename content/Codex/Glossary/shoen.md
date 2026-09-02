@@ -1,1 +1,0 @@
-Autonomous, tax-exempt rural manors held by imperial nobles, major temples, or powerful regional clans. Because shoen operate outside standard government tax collection, they are hotbeds of political maneuvering, private security forces, and armed territorial disputes between local stewards and warlords.

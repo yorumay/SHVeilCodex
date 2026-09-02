@@ -1,1 +1,0 @@
-An alcoholic beverage brewed from fermented rice. Sake serves dual purpose in society: it is both the beverage of tavern revelry and an essential offering used to seal oaths with the kami or form political bonds (san-san-kudo, the ritual exchange of three cups between allies, lords and vassals, or newlyweds).

@@ -1,1 +1,0 @@
-Officials and intelligence agents tasked with monitoring the loyalty of samurai, inspecting local administration, and detecting corruption or treason across provinces. Operating both as high-ranking judicial inspectors and undercover spies, a metsuke arriving in a provincial town causes corrupt lords, smugglers, and rebellious conspirators to panic.

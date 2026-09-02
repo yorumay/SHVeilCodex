@@ -1,1 +1,0 @@
-A colossal, nightmarish entity birthed directly from the darkness of The Void. Created with a singular, terrible purpose - to devour all life and extinguish the light - this towering horror resembles an ocean of tentacles, gnashing maws, and acidic bile. It re-emerges from time to time to obliterate sanctuaries, leaving behind nothing but silent ash and corrupted earth.

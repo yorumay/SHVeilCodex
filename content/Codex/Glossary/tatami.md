@@ -1,1 +1,0 @@
-Standardized floor mats woven from rush grass (igusa) over packed straw cores, edged with cloth borders. Tatami are so integral to Japanese architecture that room sizes are measured strictly by the number of mats. Walking on tatami requires removing outdoor footwear.

@@ -1,1 +1,0 @@
-The eerie, cobalt-colored firestorm that tore through reality. Pouring out from tearings in the fabric of the Weave and the depths of The Void, bluefire mutates terrain, warps flesh, burns away magical wards, and corrupts living beings into unnatural monstrosities. In Kozakura, areas touched by lingering bluefire are declared forbidden lands plagued by chaotic kegare.

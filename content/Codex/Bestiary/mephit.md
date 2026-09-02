@@ -1,3 +1,0 @@
-![[mephit-1786609428175.webp]]
-
-Small, winged extraplanar spirits formed from volatile elemental borderlands - such as ice, steam, mud, or ash. In Kozakura, mephits are viewed as mischievous, impure manifestations of unbalanced kami or rogue elemental forces. Weak on their own, they congregate around places where elemental seals have weakened, irritating local villagers, spoiling crops, and exploding into bursts of elemental energy when slain.
