@@ -1,5 +1,6 @@
 ---
 title: 2. Secrets of Kumohana
+date: 2025-05-08
 ---
 ![[index-1786008995391.webp]]
 

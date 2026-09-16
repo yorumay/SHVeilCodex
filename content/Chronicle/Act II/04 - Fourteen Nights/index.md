@@ -1,5 +1,6 @@
 ---
 title: 4. Fourteen Nights
+date: 2025-12-01
 ---
 ![[index-1786009003804.webp]]
 

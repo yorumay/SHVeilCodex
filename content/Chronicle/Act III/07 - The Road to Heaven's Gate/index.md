@@ -1,5 +1,6 @@
 ---
 title: 7. The Road to Heaven's Gate
+date: 2026-04-29
 ---
 ![[index-1786009016739.webp]]
 

@@ -1,5 +1,6 @@
 ---
 title: 6. Night of Bluefire
+date: 2026-03-16
 ---
 ![[index-1786009013075.webp]]
 

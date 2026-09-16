@@ -1,5 +1,6 @@
 ---
 title: 8. Vagrant Heavens
+date: 2026-06-23
 ---
 ![[index-1786009020827.webp]]
 

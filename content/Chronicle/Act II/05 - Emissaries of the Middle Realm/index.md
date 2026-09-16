@@ -1,5 +1,6 @@
 ---
 title: 5. Emissaries of the Middle Realm
+date: 2026-01-05
 ---
 ![[index-1786009008727.webp]]
 

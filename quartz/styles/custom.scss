@@ -3,8 +3,9 @@
 // put your custom CSS here!
 
 :root {
-  --bodyFont: "Palatino Linotype", "Book Antiqua", Palatino, Georgia, serif;
-  --headerFont: "Palatino Linotype", "Book Antiqua", Palatino, Georgia, serif;
+  font-size: 120%;
+  --bodyFont: "EB Garamond", Georgia, serif;
+  --headerFont: "EB Garamond", Georgia, serif;
 
   --sv-vermillion: #8a2a1f;
   --sv-vermillion-deep: #5e1d15;
@@ -21,10 +22,15 @@
   --sv-gold: #c9a35c;
 }
 
+h1, h2, h3, h4, h5, h6 {
+  font-family: "EB Garamond", Georgia, serif !important;
+}
+
 article {
   line-height: 1.7;
 
   h1 {
+    
     font-style: italic;
     font-weight: 600;
   }
@@ -71,7 +77,10 @@ article {
 
   .callout-title { display: none; }
   .callout-content { padding: 0; }
-  p { margin: 0; }
+  p {
+    margin: 0;
+    white-space: pre-line;
+  }
 
   &::before,
   &::after {

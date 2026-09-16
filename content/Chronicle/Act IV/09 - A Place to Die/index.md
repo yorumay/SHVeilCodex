@@ -1,5 +1,6 @@
 ---
 title: 9. A Place to Die
+date: 2026-09-01
 ---
 ![[index-1786009028064.webp]]
 

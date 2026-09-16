@@ -1,5 +1,6 @@
 ---
 title: 1. Beneath the Oni's Shadow
+date: 2025-03-13
 ---
 ![[index-1786008980967.webp]]
 

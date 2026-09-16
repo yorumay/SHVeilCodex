@@ -1,5 +1,6 @@
 ---
 title: 3. Wrath of the Mountains
+date: 2025-08-26
 ---
 ![[index-1786008999564.webp]]
 
