@@ -1,0 +1,4 @@
+*Island of the Sunken Fleet / The Sheltered Harbor* 
+A hilly island nestled in the Inland Sea north of Miyama Province, centered around a deep, natural harbor. Long home to quiet communities of rice farmers and coastal fishermen, the island became the historic backdrop to the tragic conclusion of the Hojo War in 1347 DR.
+
+Hojo Todahiro selected Norinoshima’s sheltered bay to assemble his allied fleet and regroup his land forces after a grueling series of indecisive naval skirmishes. Before his armadas could set sail for a decisive campaign, they were ambushed in a surprise assault led by Takenaka Sugawara. The bloody harbor battle ended the war with the catastrophic defeat of Todahiro's forces. Today, the rotting hulks of Todahiro’s sunken flagship and escort vessels litter the harbor seabed—holding ancient armaments, enchanted armor, and mystery relics waiting for daring divers to retrieve them.

@@ -1,0 +1,3 @@
+*The Floating Fortress*
+
+The magnificent flagship of Admiral Kirishima Daito and a pinnacle of Kozakuran naval engineering. Classified as a massive Atakebune (iron-clad war barge), it's hull spans over 50 meters in length and is crowned by a multi-tiered wooden castle, heavy arrow-proof armored walls, and deployable iron boarding ramps. The pinnacle of its internal craftsmanship is the captain's quarters: a lavishly appointed, gimbaled tearoom engineered to remain perfectly level with the horizon regardless of heavy seas.

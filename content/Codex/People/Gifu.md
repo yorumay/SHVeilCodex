@@ -1,0 +1,7 @@
+*The Shogunal Citadel / The Dragon's Perch*
+
+The formidable, mountain-bound capital of the Shogunate, located in Tairayama Province near the Moro border. Declared the center of the military goverment in 1045 DR, Gifu was built around the terrifying precipice of Hojo Castle - a natural stone fortress perched on jagged, rocky bluffs accessible only by steep, heavily defended switchback roads. Positioned along the Imperial Post Road, the city is split into the Upper City (where state affairs, administrative military courts, and high noble residences are situated) and the Lower City (a sprawling hub of craftsmen, inns, and road commerce).
+
+Though historically governed by the Hojo and later administered by the rival Takenaka clan as Shikken, the city was radically reclaimed three decades ago in a swift, bloody coup. The seat of power is now held by Hojo Kawabuko, the reigning Shogun, who consolidated absolute control over the realm by unleashing silent assassin networks to execute his political rivals in a single night of slaughter.
+
+Gifu is home to the covert headquarters of the deadly Uji ninja clan, whose loyalty to Kawabuko remains a pillar of his iron rule. Operating alongside them in the city's underbelly is the Dark Cloud gang - an ambitious yakuza syndicate specializing in high-level government blackmail and espionage, led by the enigmatic Wa-born crime lord Watagawa Takeshiro, who can still be contacted through discreet channels via the castle courier's office.

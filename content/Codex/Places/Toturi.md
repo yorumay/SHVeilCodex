@@ -1,0 +1,2 @@
+*The Deep Haven / Hall of the Stone Watcher*
+The isolated subterranean stronghold of Tenmei's secretive korobokuru (mountain dwarves). Founded in 60 DR when the legendary leader Chiro no Maasate led his exiled people from the central lands of Shinkoku, Toturi has endured in the deep peaks for over thirteen centuries. The colony is governed by a revered elder known as the Stonewatcher, whose sacred charge is to monitor the ancient, abandoned iron and silver mines for any sign of dark horrors creeping up from the Underdark or Yomi.

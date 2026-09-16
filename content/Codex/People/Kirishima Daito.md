@@ -1,0 +1,3 @@
+*The Pirate Admiral / Lord of the Straits*
+
+The ruler of Okahina and supreme commander of the Straw Hats pirate fleet. Starting over twelve years ago as a low-bown dockhand in the warehouses of Okahina, Daito steadily rose through the maritime ranks until he was awarded a merchant ship of his own. Disgusted by the suffocating taxes and bureaucracy of both the Shogunate and the Imperial Court, he turned rogue and embraced a life of piracy aboard his flagship the *Horai-maru*. Today, Daiyo commands a formidable fleet of 51 hulls, holding the maritime chokepoint between Shinkoku and Tenmei in an iron grip.

@@ -1,0 +1,3 @@
+*The Vermillion Bird / The Shou Vessel*
+
+A legendary foreign vessel hailing from the distant empire of Shou Lung. Featuring an advanced hull and ingenious, multi-battened sail rigging, the ship can tack seamlessly into the wind and easily outpace any native Kozakuran warship. While it's official Shou name is Zhuque (the Vermillion Bird of Eastern myth), Kozakuran sailors mispronounce the characters as Suzaku - a translation close enough that the vessel's captain wears the name with pride.
