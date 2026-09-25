@@ -1,4 +1,7 @@
-> "The end of his kin is the price he brings, when the ink is shed on his chitin wings."
+> The Insect follows the brush of night.
+> To turn the Star-Blade against the light.
+> The end of his kin is the price he brings.
+> When the ink is shed on his chitin wings.
 
 A thri-kreen samurai in a nation that has never seen either, raised by a mon who gave him the only framework available - human discipline, human philosophy, human ways of understanding what a warrior is for. He was not fully those things. He also was not nothing. He was somethign the world still hasn't named. 
 

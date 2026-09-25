@@ -1,1 +1,5 @@
 ![[Gonijo-1786607244655.webp]]
+
+The rightful ruler of Kozakura and the descendant of the god Amaterasu herself. Gonijo ascended the throne in 1352 DR at just fifteen years old following the retirement of his father Akimatsu Gokammu. For decades, he lived as a golden captive in the Imperial Palace of Dojyu, forced to sign edicts drafted by the competing Hojo and Takenaka handlers while finding solace only in his religious duties. Disinterested in power for its own sake, he would have gladly abdicated to live out his days in quiet temple.
+
+However, the horrific bloodshed of the Shadow War broke his passive resolve. Unable to stand by while Shogun Hojo Kawabuko terrorized the realm, Gonijo has spent thirty-three years secretly outmaneuvering his court handlers. Growing into a deeply empathetic, widely respected leader, he forged covert alliances across the realm - most notably with the historic Honda Clan, who held supreme court influence before the Hojo usurpation in 1045 DR. Though forced to act cautiously to protect his people from immediate shogunal reprisals, Gonijo has quietly accepted his destiny to free Kozakura from military tyranny.

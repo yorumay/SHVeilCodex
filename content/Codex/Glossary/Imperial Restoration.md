@@ -1,0 +1,5 @@
+*Kin-o (Pronounced Kin-OH, translated literally to "Reverence for the Emperor")*
+
+A burgeoning, high-stakes political and military movement dedicated to dismantling the Hojo Shogunate and restoring absolute authority to Emperor Gonijo. Rallied by the rallying cry that the Emperor is a living deity with the sole divine right to rule, participating daimyo denounce the Shogunate as unlawful usurpers who have plunged Kozakura into endless war.
+
+While Emperor Gonijo has not officially endorsed the movement to avoid sparking immediate open warfare, he covertly guides and supports its leaders behind closed doors. With powerful noble houses, remnant clans, and the ancestral weight of the Honda Clan gathering under the banner of the Chrysanthemum, the realm stands balanced on the knife-edge of a catastrophic civil war.

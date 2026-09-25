@@ -1,0 +1,7 @@
+Once the supreme power in Kozakura, the Takenaka clan seized total control of the realm in 1349 DR by overthrowing the dominant Hojo clan during the Hojo War. Installing the eight-year-old Hojo Kawabuko as a puppet shogun, clan patriarch Takenaka Okawa claimed the title of shikken (regent shogun) and ruled the empire from the shadows.
+
+However, Okawa's tyrannical ascent alienated rival noble houses and shattered his own family into two bitter, warring factions:
+- The Southwestern Takenaka: Led by Okawa from his strongholds in Fukudo, Naga-ido, and Naredo.
+- The Northwestern Takenaka: A rival coalition in Dosaki, Iwari, and Sanyo provinces rally-bound to Okawa's half-brother, Takenaka Sugawara - a brilliant military commander who held no blood claim to the regency but commanded the loyalty of the army.
+
+By 1357 DR, this internal cold war had paralyzed Kozakura. Seeing his opportunity, the young Shogun Kawabuko secretly forged dark alliance with fifteen rival ninja clans. On the fateful night of Highharvestide, the Shogun struck: fifteen ninja clans launched synchronized strikes against fifteen Takenaka stronghold simultaneously. By dawn, the clan's nobility and warlords were entirely eradicated, scattering the traumatized survivors to the far corners of the realm. This night marked the bloody dawn of the Shadow War, a three-year purge wherein the Shogun used his shadow-assassins to systematically hunt down and wipe out every remaining shadow of Takenaka opposition.

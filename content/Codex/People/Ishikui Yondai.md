@@ -1,4 +1,7 @@
-> "The breaker must bind what the darkness freed, lest the stone dissolve in the Hound's own greed."
+> The Demon's Chain in the man's hand.
+> Shall anchor the roots of the crumbling land.
+> The Breaker must bind what the darkness freed.
+> Lest the Stone dissolve in the Hounds own greed.
 
 The Ishikui have been stonewatchers since before most of Tenmei's written history - a family that understood, in a way most korobokuru prefer not to think about, that somethign went wrong in the deep mines generations ago. They had been managing the fact quietly ever since.
 

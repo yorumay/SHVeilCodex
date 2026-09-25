@@ -1,1 +1,3 @@
 ![[Hisakawa Naomi-1786607977700.webp]]
+
+The eldest child of the Hisakawa family and the older sister to Hisakawa Fuurin. Arpproaching her fortieth year, Naomi has famously defied the traditional noble expectations - remaining unwed, childless, and endlessly on the move. To the courts of Kozakura, she is a brilliant, respected diplomat who travels the length and breadth of the realm mediating disputes between rival daimyo. In truth, her diplomatic travels serve as the perfect cover for her real power: as the secret head of the Silk Shadow, she is one of the most dangerous information brokers in the empire, quietly weaving threads of intelligence that can elevate or shatter noble houses.

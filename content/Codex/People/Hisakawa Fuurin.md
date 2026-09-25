@@ -1,4 +1,7 @@
-> "From the blood of a prince, a god shall rise, to Seal the Void from weeping skies."
+> The Celestial Heir of the rising wind.
+> Shall absolve the sins that the gods have sinned.
+> From the blood of a Prince, a God shall rise.
+> To Seal the Void from the weeping skies.
 
 He grew up as the only son in a family of daughters - groomed as heir, expected to be conventinonal, and constitutionally incapable of it. His artistic instincts, love of performance and refusal to be the Hisakawa's quiet piece on the board: all of those drove a wedge between him and his father early, and he left for the Imperial Noh Troupe before that wedge could became a wall. He told himself it was freedom. It may have also been flight.
 

@@ -1,4 +1,5 @@
 *Temple of the Morning Sun*
+
 A weathered, blackened coastal temple ruin in Tenmei, perched dramatically on jagged sea cliffs over a churning bay. Once dedicated to an ancient order of martial ascetics who channeled the divine light of the morning sun to seal away deep sea horrors, the temple fell to sudden tragedy over two decades ago.
 
 While official accounts claim the monastery was overrun by corrupted sea spirits during a catastrophic tide, local elders whisper a far darker truth: the slaughter occured mere months before the Shugo-Daimyo Suzuki Motosune declared the Temple of the Red Fog the official state religion of Yoshida. Scorched red stones and lingering sulfurous ash among the seaward ruins strongly suggest that the Red Fog's zealots quietly purged their spiritual rivals to secure their absolute religious dominance over the province - leaving a silent, ruined warning on the cliffs.

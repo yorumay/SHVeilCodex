@@ -1,4 +1,7 @@
-> "He seeks the queen in her frozen sleep, while the fox counts the souls she meant to keep."
+> The Lion bears the Summer's gold.
+> To break the Winter's iron hold.
+> He seeks the Queen in her frozen sleep.
+> While the Fox counts the souls she meant to keep.
 
 Before there was Guroutsu, there was Renjishi - a samurai who earned a household by service and held it by vigilance, until a kitsune named Koyuri arrived and began consuming the will of everyone around him. He saw through it. He faced her alone. They killed each other simultaneously, and in the moment between living and dying, she offered him a contract.
 

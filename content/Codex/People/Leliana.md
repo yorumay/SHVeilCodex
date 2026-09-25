@@ -1,4 +1,7 @@
-> "When the vulture picks at the kingdom's bones, the raven shall sit on the Shadow Throne."
+> The Time-Lost Hunter with wings of jet.
+> Shall pay the debt that is unpaid yet.
+> When the Vulture picks at the kingdom's bones.
+> The Raven shall sit on the Shadow Throne.
 
 She was sent through time to hunt a target. She arrived two hundred years before she were supposed to, without memories that would have told her who she was hunting and why. She landed among the Hisakawa and stayed - not because she had nowhere to go, but because she found something there worth staying for. She watched Fuurin grow up. She trained him in methods neither of them named. She built somethign that looked, from the inside, like a life.
 

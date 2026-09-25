@@ -1,4 +1,5 @@
 *The Imperial Capital / City of the Two Gates*
+
 The grand, historical capital of the realm, sprawling over a hill in the central Dai Plain along the Dai River. Originally planned as a walled administrative center under Empress Jumei, Dojyu has long since expanded far beyond its original walls into a massive metropolis. The city is divided into four protected inner wards and three bustling outer wards:
 
 # The Inner Wards
