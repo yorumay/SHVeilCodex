@@ -1,5 +1,5 @@
 The vast continent occupying the eastern hemisphere of Toril, separated from Faerûn by thousands of miles of arid steppe known as the Hordelands. A land of incredible geographic diversity and deep-seated cultural traditions, Kara-Tur is home to powerful empires, isolated island realms, and ancient wildernesses. Its most notable nations include:
-- **Shou Lung**: The massive, bureaucracy-driven "Receiver of the Dragon" empire, inspired by imperial China.
+- **[[Shou Lung]]**: The massive, bureaucracy-driven "Receiver of the Dragon" empire, inspired by imperial China.
 - **T'u Lung**: a volatile southern empire that violently broke away from Shou Lung during a bitter civil war.
 - **Tabot**, A secluded, high-altitude realm inspired by Tibet, formed when the Shou Ho Dynasty decreed that the Path of Enlightenment as the soel official religion.
 - **Plain of Horses**: Vast, rolling grasslands dominated by nomadic horse-lords, inspired by Mongolia.

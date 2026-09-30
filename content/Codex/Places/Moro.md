@@ -1,0 +1,3 @@
+A heavily fortified border province directly neighboring [[Tairayama]]. During the [[Hojo War]], Moro was chosen by the [[Takenaka]] clan as their primary military staging ground, transforming the region into a volatile, battle-scarred zone choked with massive army encampments, endless supply trains, and bloody border skirmishes.
+
+Following the siege and fall of [[Hojo Castle]], Moro was systematically reorganized into a staunchly loyal [[Hojo]] borderland. Today, the province remains under strict martial control, its roads and mountain passes heavily patrolled by [[bakufu|Shogunate]] garrisons to stamp out rebel insurgencies, secure trade corridors, and prevent any future anti-[[Gifu]] uprisings.

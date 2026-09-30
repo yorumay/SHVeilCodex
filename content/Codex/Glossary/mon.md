@@ -1,1 +1,1 @@
-Stylized geometric or nature-inspired crests used to idenfity families, samurai clans, shrines, and guilds. Emblazoned on war banners (sashimono), armor, lanterns, and formal robes (haori), a mon instantly communicates allegiance and social standing.
+Stylized geometric or nature-inspired crests used to idenfity families, [[samurai]] clans, shrines, and guilds. Emblazoned on war banners ([[sashimono]]), [[yoroi|armor]], lanterns, and formal robes ([[haori]]), a mon instantly communicates allegiance and social standing.

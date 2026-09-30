@@ -1,0 +1,5 @@
+![[Akimatsu-1790673404870.webp]]
+
+The imperial house of [[Kozakura]], revered across the realm as living [[kami|deities]] and the direct bloodline of the sungoddess [[Amaterasu]] via the ancient [[kunitsukami|Earth Spirit]] emperors. In -73 DR - the foundational year of Kozakuran calendar - Akimatsu [[Mori]], chief of the fierce Akimatsu tribe, was chosen by divine intervention to end the chaotic warring of the early human tribes and ascend as the realm's first human Emperor.
+
+Through a calculated combination of swift military conquest and strategic marriage alliances, the Akimatsu clan unified the provinces of [[Kozakura]] under a single banner. However, despite maintaining an unbroken imperial dynasty for centuries, the clan historically struggled to maintain absolute centralized governance. Over time, actual political and military authority eroded into the hands of powerful [[shogun]]s, [[daimyo]], and warlords - leaving the Akimatsu emperors, including current [[Tenno|Emperor]] [[Gonijo]], to serve primarily as sacred, spiritual figureheads until the recent rise of the [[Imperial Restoration]].
