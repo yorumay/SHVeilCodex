@@ -1,0 +1,1 @@
+The ornamental crest or heraldic emblem mounted directly to the front of a [[samurai]]'s helmet ([[kabuto]]). Ranging from striking brass crescent moons, stylized dragon horns, and family [[mon]] to fierce demonic visages, the maedate serves to identify high-ranking commanders across chaotic battlefields while projecting martial presence and intimidating enemy warriors.

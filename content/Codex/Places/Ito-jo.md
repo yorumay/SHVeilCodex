@@ -1,0 +1,3 @@
+The cursed ancestral stronghold of the Ito family, situated on a rocky island just off the Maeshi coastline. The fortress met its tragic downfall beginning in 294 DR under the corrupt rule of Ito Saburo, who was manipulated by a malevolent demon-spirit (krakentua). In 302 DR, militant sohei from the Sun Temple stormed the island during the Night of Burning Flowers, burning the castle to ash and slaying the Ito clan and their retainers. Sensing the lingering demonic taint, the sohei bound the scorched ruins beneath a powerful curse.
+
+In 1015 DR, twelve plague-stricken refugees took shelter within the overgrown walls. By midnight, they were transformed into monstrous tagamaling busos, and prowl the island to this day.

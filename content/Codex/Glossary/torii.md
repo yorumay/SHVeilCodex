@@ -1,0 +1,1 @@
+An iconic wooden or stone gateway marking the entrance to a sacred shrine or holy site. Painted in vibrant vermillion or left as weathered natural timber, a torii represents the boundary separating the mundane, physical world from the sacred realm of the [[kami]]. Passing beneath a *torii* requires respectful conduct, as doing so steps directly onto donsecrated ground.

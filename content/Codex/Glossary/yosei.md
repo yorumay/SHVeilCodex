@@ -1,0 +1,1 @@
+A general term for the delicate, elusive nature spirits, elemental, and wild folk that inhabit untouched wilderness, deep groves, and hidden mountain springs across [[Kozakura]]. Often capricious or shy toward mortals, *yosei* range from benevolent guardians of forest glades to mischievous tricksters who lead foolish travelers astray with illusions and phantom lights.

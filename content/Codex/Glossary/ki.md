@@ -1,0 +1,1 @@
+The fundamental spiritual energy, life force, and internal vitality present within all living mortal beings. Through rigorous martial training, meditation, and spiritual discipline, warriors and monks can focus their ki to achieve superhuman feats - hardening their bodies against injury, striking with supernatural force, or channeling elemental energy through martial techniques.

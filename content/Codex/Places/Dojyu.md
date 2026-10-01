@@ -16,7 +16,7 @@ The historical district of traditional merchants, shops, and legacy businesses.
 Sprawling outside the fortifications, the outer wards hold the overflow of common homes, shops, and riverfront commerce. Warehouses, tanneries, silk dyers, and sake breweries cluster downstream to the east, while luxurious summer estates of the nobility line the quieter upstream riverbanks to the west.
 
 # The Two Gates
-Entry into the Inner City is strictly controlled through two monumental, stone-carved fortified gateways: the [[Sunrise Gate]] to the east and the [[Sunset Gate]] to the west. These landmarks lend their name to the [[Two Gates]], the most powerful and entrenched yakuza syndicate operating in the capital.
+Entry into the Inner City is strictly controlled through two monumental, stone-carved fortified gateways: the [[Sunrise Gate]] to the east and the [[Sunset Gate]] to the west. These landmarks lend their name to the Two Gates, the most powerful and entrenched yakuza syndicate operating in the capital.
 
 # Religious and Arcane Power
 Dojyu serves as the spiritual seat for the three major schools of the [[Way of Enlightenment]] - [[Umoro-ji]] (Toro-dai school, led by High Priest Kajume), [[Kanchai-ji]] (led by High Priest Gamihara), and the outer temple of [[Konjo-ji]] (led by High Priest Niduro). Hidden behind the court's polished political facade lies the [[Iridescent Peacock Society]], a secretive cabal led from the Second Ward by a shadowy wu jen Obuno Yoshigi, chief advisor to the Head Councilor of State.

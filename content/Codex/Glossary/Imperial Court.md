@@ -1,0 +1,1 @@
+The elite assembly of hereditary nobles ([[kuge]]), high priests, scholars, and royal advisors who surround the [[tenno|Emperor]] in the imperial capital. While often detached from day-to-day military logistics handled by the [[bakufu|Shogunate]], the Imperial Court remains the absolute center of art, poetry, fashion, religious tradition, and political patronage in [[Kozakura]].

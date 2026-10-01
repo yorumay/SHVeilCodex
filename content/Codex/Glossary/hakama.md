@@ -1,0 +1,1 @@
+Distinctive, wide-legged pleated trousers or split-skirts tied at the waist over a [[kimono]]. Featuring five front pelats and two back pleats - symbolizing fundamental martial virtues such as honor, loyalty, and courtesy - hakama are standard formal attire for [[samurai]], court officials, [[kendo]] swordsmen, and [[miko]] priestesses.

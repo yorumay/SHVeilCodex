@@ -1,0 +1,1 @@
+A ritualistic dance performed by shrine priestesses ([[miko]]) and holy ascetics to honor, entertain and invite the presence of the [[kami]]. Accompanied by flutes, drums, and brass bells (*suzu*), *kagura* movements re-enact ancient mythical tales from the [[Age of Gods]], acting as a spiritual bridge to channel divine blessings and ward off evil spirits.

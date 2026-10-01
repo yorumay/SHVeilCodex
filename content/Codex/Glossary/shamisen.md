@@ -1,0 +1,1 @@
+A traditional three-stringed musical instrument played with a large plectrum called a *bachi*. Featuring a skin-covered wooden body and a long fretless neck, the shamisen produces a distinct, percussive tone heard everywhere from high-class teahouses and [[kabuki]] theaters to festive street corners and traveler inns across the realm.

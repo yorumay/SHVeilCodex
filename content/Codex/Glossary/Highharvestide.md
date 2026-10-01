@@ -1,0 +1,1 @@
+A foreign calendar holiday celebrated across western [[Faerûn]] that has also taken root in [[Kozakura]]'s major international treaty ports and trading hubs. Occuring at the autumn equinox, the festival aligns seamlessly with local rice-harvest [[matsuri]] - featuring grand feasts, street markets, and offerings to local nature spirits to give thanks for a prosperous yield. 

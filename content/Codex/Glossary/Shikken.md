@@ -1,0 +1,1 @@
+A high adminstrative title within the [[bakufu|military government]], referring to the regent who exercises actual executive on behalf of a puppet or minor [[shogun]]. In eras where the Shogunate's leader is a figurehead, the *shikken* commands the military council, controls provincial appointments, and dictates martial policy across [[Kozakura]] from behind the scenes.

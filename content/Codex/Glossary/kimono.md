@@ -1,0 +1,1 @@
+The foundational T-shaped traditional robe worn by all levels of society across [[Kozakura]], wrapped around the body and secured at the waist with an [[obi]] sash. Ranging from simple hemp garments worn by common farmers to multi-layered, hand-painted silk gowns worn by court nobility, the pattern, color, and fabric reflect the wearer's rank, gender, and the current season.

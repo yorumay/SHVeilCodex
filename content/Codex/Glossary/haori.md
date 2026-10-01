@@ -1,0 +1,1 @@
+A traditional thigh-length or knee-length jacket worn open or tied lightly at the chest over a [[kimono]]. Often lined with fine silk and embroidered on the back with family heraldic crests ([[mon]]), the haori serves as formal outerwear for [[samurai]], wealthy merchants, and scholars during official audiences, ceremonies, and travel.

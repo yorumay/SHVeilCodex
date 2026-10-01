@@ -1,0 +1,1 @@
+The recognized landholding, domain, or territory held under the jurisdiction of a [[daimyo|feudal warlord]] or noble clan. A kaiki includes all farmland, forests, villages, and resource rights within its borders, with the ruling lord responsible for maintaining local roads, levying [[samurai]] troops, collecting rice taxes, and administering justice.

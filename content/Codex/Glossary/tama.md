@@ -1,0 +1,1 @@
+The vital soul, spiritual force, or divine spark contained within all living beings, locations, and sacred objects. In [[Kozakura]]n [[shinto|spiritual theology]], a *tama* can manifest in varying states - such as a harmonious, protective light (*nigi-mitama*) or a violent, wrathful impulse (*ara-mitama*) when desecrated, angered, or corrupted by dark magic.

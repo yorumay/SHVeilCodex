@@ -1,0 +1,1 @@
+Elaborate decorative hairpins and ornaments crafted from polished tortoiseshell, lacquered wood, silver, silk flowers, and precious gemstones. Worn in intricate traditional hairstyles by [[geisha and maiko|geisha, maiko]], and noble ladies, kanzashi serve as clear indicators of social status, season, and refined taste.
