@@ -1,0 +1,3 @@
+A famed martial kensai academy located on the island of Mikedono, celebrated throughout Kozakura for its fluid, lightning-fast sword techniques that mirror the sunlit ripples and unpredictable currents of mountain streams. For decades, the school was led by the legendary kensai master Ebusado, whose razor-sharp precision and fluid stance drew ambitious swordsmen from every province across the realm.
+
+Following Ebusado's retirement seven years ago, stewardship of the dojo passed to his senior student, who now maintains the school's strict training regimen, defends its ancestral honor and selects promising apprentices seeking to master the art of the radiant blade.
