@@ -1,0 +1,1 @@
+The Black Feather. [[Leliana]] cannot remember a time before this dagger. It carries the cold, dark energies of the [[kage-no-sekai|Shadowfell]], and when her resolve falters, it guides her hand.

@@ -1,0 +1,5 @@
+![[xorn-1791931021478.webp]]
+
+Bizarre, radially symmetric extraplanar scavengers native to the Elemental Plane of Earth. Easily recognized by their squat, barrel-shaped bodies covered in stony hide, xorn feature three multi-jointed arms, three stumpy legs, and three wide-set eyes positioned around a gaping, tooth-filled maw set directly at the top of their heads.
+
+Xorn do not consume organic meat or vegetation; instead, their diet consists entirely of precious metals, raw ores, and valuable gemstones. Utilizing an innate elemental ability to phase through solid stone and earth as effortlessly as a fish swims through water, xorn are drawn across planar boundaries to [[Kozakura]]'s richest mining veins - such as the tin mines of [[Tanekashima]] or silver deposits in the [[Dragon's Spine|central ridges]]. While rarely aggressive out of malice, their insatiable hunger for gold, jade, and raw ore frequently leads them to attack miners, break through reinforced vault doors, or attempt to devour the enchanted metal weapons and jewelry of unsuspecting travelers.
