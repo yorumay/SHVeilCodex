@@ -1,0 +1,3 @@
+![[skittering horror-1793087299670.webp]]
+
+A malevolent classification of monstrous entities that crawl through the shadowed depths of the Underworlds. Possessing dim intellect paired with preternatural, terrifying cunning, horrors are physical manifestation born from the deepest, darkest fears of mortal minds. While they share certain common skeletal frameworks, their physical forms vary wildly - frequently twisting together grotuesque traits of fiends, multi-jointed insectile limbs, and predatory reptilian hides. They stalk lightless tunnels and forgotten ruins in total silence, waiting to prey upon the unwary.
