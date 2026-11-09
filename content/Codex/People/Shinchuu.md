@@ -1,3 +1,5 @@
+![[Shinchuu-1793881559287.webp]]
+
 > The Insect follows the brush of night.
 > To turn the Star-Blade against the light.
 > The end of his kin is the price he brings.

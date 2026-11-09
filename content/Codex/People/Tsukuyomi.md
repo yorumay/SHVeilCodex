@@ -1,1 +1,3 @@
+![[Tsukuyomi-1793881623265.webp]]
+
 The elusive, enigmatic deity of the moon, tides, and secrets of the night sky, and sibling to the sun goddess [[Amaterasu]] and storm lord [[Susanoo]]. Neither purely masculine nor feminine in Kozakuran art and myth, Tsukuyomi governs twilight, subtle magic, hidden truths, and the quiet passage of time. Unlike the widely celebrated [[amaterasu|sun goddess]], Tsukuyomi's worship is soft and comtemplative, often favored by night travelers, scholars, ascetics, and those who walk beneath the pale light of shadow.

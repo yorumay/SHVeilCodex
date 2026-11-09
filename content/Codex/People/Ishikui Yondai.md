@@ -1,3 +1,5 @@
+![[Ishikui Yondai-1793881065069.webp]]
+
 > The Demon's Chain in the man's hand.
 > Shall anchor the roots of the crumbling land.
 > The Breaker must bind what the darkness freed.

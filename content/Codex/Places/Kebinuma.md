@@ -1,1 +1,3 @@
+![[Kebinuma-1793794837943.webp]]
+
 A foul, mist-choked marshland characterized by stagnant waters, submerged sinkholes, and gnarled trees dripping with thick, hair-like moss. The atmosphere within Kebinuma is oppressive and heavy with decay, making navigation treacherous even for seasoned woodsmen. Travelrs report bizarre sights within its depths - floating lights, ghostly whispers, and unnaturally silent bogs. The swamp is notorious for housing strange amphibious [[yokai]], territorial bog hags, and pockets of lingering dark spiritual energy that corrupt those who linger too long in its rot.

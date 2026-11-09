@@ -1,3 +1,5 @@
+![[Okamura Renjishi-1793881396038.webp]]
+
 > The Lion bears the Summer's gold.
 > To break the Winter's iron hold.
 > He seeks the Queen in her frozen sleep.

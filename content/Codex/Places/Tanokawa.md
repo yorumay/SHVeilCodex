@@ -1,1 +1,3 @@
+![[Tanokawa-1793880511564.webp]]
+
 A wide, majestetic river that flows through the heart of [[Dosaki]] Province before emptying into the [[Inland Sea]]. The river serves as the economic artery of the province, providing critical transport for felled timber harvested from the ancient groves down to the [[Imperial Shipyards]] at [[Renkyu]]. Highly revered by local fishermen and [[shukenja]], the Tanokawa's waters are considered spiritually pure, though its lower reaches near the mouth are protected by territorial bamboo [[spiritfolk]] who strictly enforce sacred boundaries along its banks.

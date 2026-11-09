@@ -1,3 +1,5 @@
+![[Saejima Ken-1793881478410.webp]]
+
 > The Moss-Cloaked Needle shall pierce the gale.
 > To stitch the silk where the sky turns pale.
 > He plants the seed in the rotting waste.

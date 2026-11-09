@@ -1,4 +1,7 @@
-*The Garrison Isle / Wall of the Inland Sea*
+![[Taibojima-1793880159320.webp]]
+
 A strategically vital island located in the [[Inland Sea]] near central [[Tenmei]]. Though home to quiet fishing villages and rice paddies whose taxes flow directly to [[Tenmei]] Province, Taibojima functions primarily as a fortified naval outpost. A permanent garrison of Imperial-turned-[[bakufu|Shogunate]] troops is stationed here, trained to serve as lethal samurai marines during naval deployments.
 
 Many of the high-ranking samurai stationed on Taibojima served under [[Takenaka Sugawara]] during the [[Hojo War]] of 1347 DR and remain fiercely loyal to the [[bakufu|Shogunate]] cause. Due to its intense military value, the island maintains strict martial security—requiring all visitors and strangers to carry official travel passes while keeping them under constant garrison surveillance.
+
+*The Garrison Isle / Wall of the Inland Sea*

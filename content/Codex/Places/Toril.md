@@ -1,1 +1,3 @@
+![[Toril-1793880658133.webp]]
+
 The central world of the [[nakatsukuni|Material Plane]], orbiting as the third planet from the sun within Realmspace. Toril is orbited by a single glowing moon, [[Selûne (Celestial Object)]], which is trailed by a glittering cluster of pale asteroids known as the [[Tears of Selûne]]. The planet emcompasses vast, diverse landmasses - including [[Faerûn]], [[Kara-Tur]], and Zakhara - and serves as the primary mortal anchor point for countless divine pantheons, cosmic alignments, and planar connections across the [[Great Wheel]].

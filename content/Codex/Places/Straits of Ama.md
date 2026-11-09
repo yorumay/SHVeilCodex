@@ -1,1 +1,3 @@
+![[Straits of Ama-1793879861503.webp]]
+
 The treacherous sea channel separating the southern islands of [[Hinomoto]] and [[Mikedono]]. As submerged extensions of the archipelago's steep volcanic mountain ranges, the sea floor here drops precipitously into dark abyssal trenches, leaving jagged underwater rock formations and sharp pinnacles lurking just beneath the surface. Despite violent tidal currents and sudden coastal squalls that make navigation hazardous for deep-draft vessels, the *Ama-kaikyo* remains a vital maritime shipping corridor connecting the eastern sea routes to ports like [[Itzuhachi]]. Experienced captains rely on local pilots and sea spiritfolk guides to safely negotiate its churning, cliff-lined waters.

@@ -1,3 +1,5 @@
-*Island of the Nesting Shore / The Crab Shallows*
+![[Marujima-1793795196585.webp]]
 
 A tranquil, rocky island situated off the northern coast of [[Miyama]] Province. The island's sheer coastal cliffs serve as a massive nesting ground for a wide variety of migratory sea birds, while its sandy northern beaches attract sea turtles every laying season. Because of its quiet waters and thriving marine ecosystem, the shallow bays surrounding Marujima are a favorite fishing spot for local [[Miyama]] sailors harvesting prized crab and lobster.
+
+*Island of the Nesting Shore / The Crab Shallows*

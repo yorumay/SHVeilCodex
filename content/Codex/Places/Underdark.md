@@ -1,3 +1,5 @@
+![[Underdark-1793880706910.webp]]
+
 A vast, nightmarish network of subterranean caverns, abyssal chasms, and labyrinthine tunnels spanning deep beneath the surface of the continent. Illuminated only by bioluminescent fungi, glowing ores, and rivers of molten rock, the Underdark is an utterly alien environment hostile to surface dwellers. It is home to ancient, subterranean civilizations - such as the drow, duergar, and svirneblin - as well as the terrifying aberrant horrors, deep-dwelling [[yokai]], and subterranean monsters that have never seen the light of the sun.
 
 In [[Kozakura]]n lore, surface dwellers often view the deepest abysses of the Underdark as borders or gateways to the [[yomi-no-kuni|underworlds]] of shadow and torment. Reaching this sunless realm requires descending through treacherous mountain fissures, volcanic vents, or forgotten subterranean ruins. Expedition into the depths is universally regarded as desperate endeavor, as the environment itself - riddled with toxic vapors, starvation, madness-inducing darkness, and merciless subterranean predators - is as lathal as the creatures who inhabit it.

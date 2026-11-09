@@ -1,1 +1,3 @@
+![[Anrakuson-1793880922302.webp]]
+
 A localized diety revered as the compassionate protector of spirits and guide of departed souls. Unlike harsh chthonic judges of the underworld, Anrakuson watches over village graveyards, roadside shrines, and sacred cremation grounds to protect vulnerable human souls from being consumed by [[gaki]] or dragged into [[Yomi-no-Kuni]] before their time. Villagers offer incense, quiet prayers, and rice-cakes to his shrines to ensure their ancestors rest in peace.

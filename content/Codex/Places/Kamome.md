@@ -1,3 +1,5 @@
-*Gale-Lighthouse Shrine / Sanctuary of the Two Winds*
+![[Kamome-1793794295005.webp]]
 
 A cliffside spiritual sanctuary in Unetgeso Province built around a massive, dual-bladed wind spire overlooking the windy straits. Known for its sacred hot springs and ancient divination boards, Kamome is maintained by twin shrine maidens ([[miko]]) who interpret the shifting sea breezes to predict storms and naval fortunes. Local folklore holds that the shrine was built over a profound elemental tear where two opposing forces - one hot and fiery, the other cool and precise - converge in perfect equilibrium to protect sailors from naval curses.
+
+*Gale-Lighthouse Shrine / Sanctuary of the Two Winds*

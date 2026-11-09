@@ -1,1 +1,3 @@
+![[Tamara Kiryu-1793881660095.webp]]
+
 When the [[Shinzatsu]] sealed the rift at [[Akagane-no-Oka]], darkness chose him. He declined, but was cursed in return. His arm transformed, chitinous, monstrous, wrong. Radiating darkness like a beacon, afflicting everyone around him. He chose to leave rather than endanger the people he traveled with.

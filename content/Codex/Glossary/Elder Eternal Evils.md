@@ -1,0 +1,3 @@
+Three primordial cosmic horrors spawned in the very instant creation's first light broke across the primordial cosmos. Formed as an absolute cosmic anti-thesis to existence itself, these ancient entities exist solely to extinguish all light, life, and planar order, returning the multiverse to a state of unblemished, cold oblivion.
+
+Pre-dating conventional gods, fiends, and mortal mythologies, the Elder Eternal Evils cannot be truly slain through mortal steel or divine magic - only sealed, contained, or lulled into restless slumber across epochs. Their subtle, lingering corruption constantly bleeds through planar seals, inspiring dark cults and warping the minds of those foolish enough to peer too deeply into the void before time.

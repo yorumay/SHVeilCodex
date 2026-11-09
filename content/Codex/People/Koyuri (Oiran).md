@@ -1,4 +1,4 @@
-*The Red-Ribbon Oiran / The Wandering Courtesan*
+![[Koyuri (Oiran)-1793881315796.webp]]
 
 A legendary, ethereal [[oiran]] (high-ranking courtesan) whose captivating beauty, mastery of the [[shamisen]], and flawless poise have made her a celebrated figure in high-class teahouses and pleasure districts across [[Kozakura]] for over a decade. Moving between noble estates and wealthy provincial capitals, she leaves a trail of smitten lords, poets, and wealthy merchants in her wake.
 

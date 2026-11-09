@@ -1,1 +1,3 @@
+![[Iewara-1793793711281.webp]]
+
 The largest settlement on the island of [[Kanshu]] and its premier center for maritime trade with [[Kozakura]] and the neighboring realm of Wa. The port town and its surrounding lands are the hereditary domain of Lord Betsui Kando, head of a powerful clan of bamboo [[spiritfolk]]. Fueled by timber exports and a sizeable fishing fleet, Iewara is a crude, unrefined, and boisterous frontier haven populated by hardened lumberjacks, rough sailors, mercenaries, and political outcasts.

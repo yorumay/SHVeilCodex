@@ -1,3 +1,5 @@
+![[Kanfu-1793794556780.webp]]
+
 An extreme, jagged mountain range in southern Tenmei, widely referred to as the Kanfu Teeth due to its treacherous, needle-sharp peaks that resemble the fangs of some ancient, fossilized beast. The environment is harsh and unyielding, swept by biting winds and bitter cold; yet despite the brutality, life persists. Monstrous fauna and predatory yokai haunt its crags, while handful of hardy korobokuru settlements cling to the high passes, specializing in extracting rare minerals and mountain timber.
 
 High upon the slopes of Daidake, a highly-active volcanic peak within the range, early settles established rugged camps around steaming geothermal vents. Over the last three centuries, these outposts have expanded into a thriving hot spring town and a monolithic temple complex - the Temple of the Red Fog.

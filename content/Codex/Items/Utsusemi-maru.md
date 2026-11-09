@@ -1,1 +1,3 @@
+![[Utsusemi-maru-1793881799605.webp]]
+
 A legendary sword said to have belonged to Takemikazuchi or Futsunushi, lost during or after the feast, after Okuninushi surrendered to the pair. It was found in the deepest reaches of [[Izunayama]], in the hands of the [[yuki-onna]] [[Fuyukimi]]. She left it behind when she ascended to [[Takamagahara]] as one of the [[amatsukami]]. Since [[Shinchuu]] took it up, the blade has slowly been gaining new forms.

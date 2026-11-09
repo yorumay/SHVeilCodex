@@ -1,3 +1,5 @@
+![[Hisakawa Fuurin-1793881041469.webp]]
+
 > The Celestial Heir of the rising wind.
 > Shall absolve the sins that the gods have sinned.
 > From the blood of a Prince, a God shall rise.

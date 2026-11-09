@@ -1,1 +1,3 @@
+![[Tamanokuni-1793880380469.webp]]
+
 The booming capital of [[Miyama]] Province and the undisputed urban heart of the region. Since the [[bakufu|Shogunate]] designated it as the provincial seat, the city has experienced explosive growth - doubling in size and population. Today, it is a bustling, high-density metropolis driven by political intrigue, military garrisons, expanding merchant guilds, and the constant influx of rural commoners seeking fortune in the [[Shogun]]'s favor.

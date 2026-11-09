@@ -1,4 +1,4 @@
-*The Imperial Capital / City of the Two Gates*
+![[Dojyu-1793792859945.webp]]
 
 The grand, historical capital of the realm, sprawling over a hill in the central [[Dai Plain]] along the [[Dai River]]. Originally planned as a walled administrative center under Empress [[Jumei]], Dojyu has long since expanded far beyond its original walls into a massive metropolis. The city is divided into four protected inner wards and three bustling outer wards:
 
@@ -20,3 +20,5 @@ Entry into the Inner City is strictly controlled through two monumental, stone-c
 
 # Religious and Arcane Power
 Dojyu serves as the spiritual seat for the three major schools of the [[Way of Enlightenment]] - [[Umoro-ji]] (Toro-dai school, led by High Priest Kajume), [[Kanchai-ji]] (led by High Priest Gamihara), and the outer temple of [[Konjo-ji]] (led by High Priest Niduro). Hidden behind the court's polished political facade lies the [[Iridescent Peacock Society]], a secretive cabal led from the Second Ward by a shadowy wu jen Obuno Yoshigi, chief advisor to the Head Councilor of State.
+
+*The Imperial Capital / City of the Two Gates*

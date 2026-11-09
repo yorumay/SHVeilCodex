@@ -1,1 +1,3 @@
+![[Susanoo-1793881641146.webp]]
+
 The tempestuous [[kami]] of storms, sea, and wild battles, and brother to the sun goddess [[Amaterasu]]. Fearless, chaotic, and fiercely independent, Susanoo is invoked by warriors seeking violent strength in combat, mariners braving treacherous waters, and farmers praying for rain or protection against typhoon destruction. In [[shinto|Kozakuran myth]], his fierce nature embodies the raw, untamed forces of the natural world.

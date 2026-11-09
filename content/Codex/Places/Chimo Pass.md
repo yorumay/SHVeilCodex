@@ -1,1 +1,3 @@
+![[Chimo Pass-1793791957913.webp]]
+
 The lowest, most accessible mountain pass cutting through the formidable [[Dragon's Spine]] range. Serving as a crucial junction for alpine trails and a prime stretch of the ancient [[Imperial Post Road]], Chimo Pass is a vital logistical artery for both trade caravans and troop movements. Whoever controls the pass dictates all military and commercial flow between eastern and western [[Kozakura]] - making it a heavily fortified choke point constantly monitored by [[bakufu|Shogunate]] garrisons.

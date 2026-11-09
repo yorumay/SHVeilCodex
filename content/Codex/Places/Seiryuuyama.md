@@ -1,1 +1,3 @@
+![[Seiryuuyama-1793795858140.webp]]
+
 A majestic, windswept sacred mountain overlooking the coastal city of [[Kaisei]]. Ancient legends declare that [[Fujin]], the God of Wind, made his early home upon its craggy summits, making the peak a holy site where [[tengu]] warriors perform perilous climbing plgrimages to prove their devotion to the sky god. The mountain is also historically famous as the former lair of a venerable [[t'ien lung]] (celestial dragon), which was notoriously hunted down and slain by elite [[bakufu|Shogunate]] forces forty years ago in a blood display of martial dominance.

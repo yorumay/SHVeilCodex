@@ -1,1 +1,3 @@
+![[Izanami-1793881105717.webp]]
+
 The primordial goddess of creation and death, and sister-wife to [[Izanagi]]. After perishing in the birth of the [[kagutsuchi|fire deity]], she descended into [[Yomi-no-Kuni]] (the underworld), becoming its terrifying ruler. In [[shinto|Kozakuran theology]] and lore, she is feared as the queen of dread, decay, and malignant spirits - the cosmic force bound to the dark fissures spilling forth horrors from the underworld into the mortal realm.

@@ -1,0 +1,3 @@
+The absolute culmination of lawful goodness within the cosmology. Rising out of the shimmering Silver Sea, this vast, single mountain ascends through seven pristine tiers of increasing divine perfection - ranging from the radiant coastal slopes of Lunia to the luminous unblemished crown of Chronias.
+
+Home to archons, angels, and noble deities of honor and justice, Mount Celestia stands as an unyielding beacon against planar corruption. Its slopes offer sanctuary to virtuous souls seeking absolute spiritual enlightenment, while its divine hosts represent the ultimate martial shield against the encroaching darkness of the lower planes.

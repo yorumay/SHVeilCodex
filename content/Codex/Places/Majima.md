@@ -1,1 +1,3 @@
+![[Majima-1793795163718.webp]]
+
 A cluster of prosperous, highly fertile farming settlements nestled among the rolling northern foothills of the [[Tairayama]] province. Renowned for its rich soil and bumber agricultural yields, the district serves as a vital economic breadbasket for the surrounding region. The settlements take their name from Majima Castle, the formidable ancestral fortress of the noble [[Takatsukasa]] clan. Perched high above the valley, the stronghold commands sweeping views of the farming communes below, safeguarding the clan's vast granaries, trade routes, and tenant farmers from mountain brigands and rival warlords.
