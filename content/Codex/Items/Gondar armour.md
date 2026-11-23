@@ -1,0 +1,5 @@
+An intimidating, non-magical marvel of pure mechanical engineering crafted using sacred principles of [[Gond]]. Built as heavy, articulated exo-suits, these walking tanks grant their wearers terrifying battlefield capabilities without drawing upon a single drop of arcane or divine magic:
+- Intricate clockwork levers, counterweights, and tension-springs amplify the wearer's physical might to superhuman levels.
+- A complex array of grounding rods, resonant alloys, and geometric baffles generate a localized antimagic field, rendering the inquisitor completely impervious to hostile spells and stripping enemies of magical enhancements.
+- Multi-layered, precision-ground optical prisms built into the visor allow the wearer to pierce illusions, invisibility, and divine deceptions, granting truesight to see through the lies of rival gods.
+- The exterior is shingled with overlapping, honed-steel scales engineered to slice deeply into anyone foolish enough to grapple, strike, or attempt to topple the armour in close quarters.

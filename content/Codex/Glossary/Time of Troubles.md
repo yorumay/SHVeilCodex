@@ -1,0 +1,7 @@
+A catastrophic divine upheaval that shook [[Toril]] and the surrounding planes in the Year of Shadows (1358 DR). Triggered when the dark deities [[Bane]] and [[Myrkul]] stole the sacred [[Tablets of Fate]] from the Overgod [[Ao]] - hoping to hoard divine power for themselves - the furious Overgod cast nearly the entire pantheon out of the Outer Planes and stripped them of their true immortality.
+
+Force to walk in the [[nakatsukuni|Prime Material Plane]] in vulnerable mortal avatars, the gods plunged the world into chaos. Both arcane and divine magic wildly misfired, surged unpredictably, or failed altogether across vast regions - producing terrifyingly wild magic zones and dead-magic voids.
+
+Stripped of their planar invulnerability, several major deities - including [[Bane]], [[Bhaal]], [[Myrkul]], and [[Mystra]] - were slain in mortal combat, while cunning mortals such as [[Cyric]], [[Kelemvor]], and [[Midnight]] ascended to claim their vacant divine portfolios.
+
+The upheaval only concluded when the shattered [[Tablets of Fate]] were recovered and returned to [[Ao]], who subsequently rewrote the laws of divinity - binding a deity's strength directly to the devotion and number of their mortal worshipers.

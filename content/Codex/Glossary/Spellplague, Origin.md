@@ -1,0 +1,5 @@
+Following the cataclysmic events of 1385 DR, arcane scholars, astrologers, and divine priests across the realms have fiercely debated the true catalyst behind the unraveling of reality.
+
+The most widely accepted belief holds that the calamity was triggered by the death of Mystra, the goddess of Magic. For eons, raw arcane energy had been bound and regulated within Mystra's Weave. When she died, the Weave tore apart completely, unleashing an uncontained, raw torrent of chaotic magic that swept across the planes as the Spellplague.
+
+A vocal minority of high arcanists and planar historians reject this as fundamentally illogical. Historical records prove that two previous incarnations of Mystra had already perished (during the Fall of Netheril and the Time of Troubles), yet the Weave maintained its structural integrity throughout her deaths. These scholars argue that Mystra's death alone could not accoutn for the total collapse of the Ethereal Plane and the reshaping of the cosmos. In their view, the true cause remains an incomprehensible mystery - hidden from mortals and perhaps even the gods themselves.
